@@ -20,7 +20,7 @@ Orgs: [Hollaback!](//twitter.com/iHollaback), [IMPACT](//facebook.com/IMPACTself
 ### Report Crimes
 [StopAAPIHate.org](//t.co/tjHqwy28HY) is the de facto crime reporting as run by [A3PCon](//t.co/2IIhw7taKo) taking over where [OCA](//t.co/eNTNYoHB4z) stopped with [AAPIHateCrimes](//t.co/yX5ogNiir4) in 2018.
 
-Victims often won't report crimes due to language difficulty, cultural shame in causing attention, and/or fear of inconvenience. Perps have openly stated they intentionally target such victims and often commit crime to exert power. Report to remove their power. Bystanders, get video and [report](//stopaapihate.org/reportincident).
+Victims often won't report crimes due to language difficulty, cultural shame for causing attention, and/or fear of inconvenience. Attackers have openly stated they intentionally target such victims and often commit crime to exert power. Reporting helps to remove their power. Bystanders: get video and [report](//stopaapihate.org/reportincident).
 
 For confidential reporting with public reporting and protected anonymity (i.e. not _NY Post_ who unethically, unwantedly outed [Lauren Kwei](//www.rollingstone.com/culture/culture-news/onlyfans-emt-lauren-kwei-1103336) who [reappropriated her name and fame](//rollingstone.com/culture/culture-news/onlyfans-medic-lauren-kwei-new-york-post-interview-1104943)), see [Dion Lim](//facebook.com/DionLimTV) and [Betty Yu](//facebook.com/BettyYuLive) in SF, [CeFaan Kim](//facebook.com/CeFaanKimTV) and [Vicky Nguyen](//t.co/H1idgZnvam) in NYC, Randall Yip at [AsAmNews](//facebook.com/AsAmNews), et al.
 
