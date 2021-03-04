@@ -8,14 +8,14 @@ title: StopAAPIHate.us
 ## Be, Stay Informed
 Most have an idea. Fewer have details. Yet fewer have real-time news. [Track the hate](//twitter.com/RachelRoh), especially in [social media](//stopaapihate.org/reportsreleases), join [groups actively informed](//medium.com/@richardc020/washthehate-43cb5d0de773?source=friends_link&sk=d488ff5071ef42d7c1b99034288d8421) ([this tag](//facebook.com/groups/1450447971654849/post_tags/?post_tag_id=1956436984389276) is a list), or read a [summary](//facebook.com/invisibleasians/posts/103494218467377) or [an explanation of why we're taking action](//nextshark.com/anti-asian-assaults-racism-may-lee).
 
-[#StopAsianHate](//twitter.com/hashtag/StopAsianHate), [#StopAAPIHate](//twitter.com/hashtag/StopAAPIHate), [#HateIsAVirus](#HateIsAVirus)
+[#StopAsianHate](//twitter.com/hashtag/StopAsianHate), [#StopAAPIHate](//twitter.com/hashtag/StopAAPIHate), [#HateIsAVirus](//twitter.com/hashtag/HateIsAVirus)
 
 ## Help victims
 ### Intervene
 
-Help the victim in real time. Train to avoid shock, delay, silence. It's not illegal to use force in self-defense. Train in [firearms](//nrainstructors.org/search.aspx), other weaponry, martial arts, [self-defense](//youtube.com/watch?v=woL9f-R-OTs&list=PLewDws3GRrGgnx6bneWAXJvm9K3mJ98TS&index=1). 
+Help the victim in real time. Train to avoid shock, delay, silence. It's not illegal to use force in self-defense. Train in [firearms](//t.co/DgmItFWXAj), other weaponry, martial arts, [self-defense](//youtube.com/watch?v=woL9f-R-OTs&list=PLewDws3GRrGgnx6bneWAXJvm9K3mJ98TS&index=1). 
 
-Orgs: [Hollaback!](//twitter.com/iHollaback), [IMPACT](//facebook.com/IMPACTselfdefense), [Smart Defense](//elizabethsmartfoundation.org/smart-defense); [East Bay Toishan Association](//nbcbayarea.com/news/local/new-oakland-chinatown-foot-patrol-forms-to-protect-asian-american-community/2481091); [Guardian Angels](//facebook.com/guardianangels.org), [CAENY](//facebook.com/CAENYC), [Oakland Compassion Project](//oakcompassionproject.org), [API Healer Network](//nqapia.org/wpp/healthandhealing), [City of New York](//www1.nyc.gov/site/cchr/community/stop-asian-hate.page), [Chicago CMA](//facebook.com/cmaachicago), [Project Lotus](//facebook.com/projectlotusorg), local patrols and [neighbor watches](//nnw.org), [NYPD volunteering](//www1.nyc.gov/site/nypd/bureaus/administrative/programs.page), [asiangunsociety](//instagram.com/p/CL5FV1xDCHb)
+Orgs: [Hollaback!](//t.co/zKm2xhCZuw), [IMPACT](//facebook.com/IMPACTselfdefense), [Smart Defense](//t.co/0QUQDkGQKk); [East Bay Toishan Association](//t.co/PzTu5vyvJ3); [Guardian Angels](//t.co/OVuObeOShI), [CAENY](//t.co/hCP2hivM4X), [Oakland Compassion Project](//t.co/tdJNnuXWDu), [API Healer Network](//t.co/Ca0cv3pfEZ), [City of New York](//t.co/tnBhgEAyly), [Chicago CMA](//facebook.com/cmaachicago), [Project Lotus](//facebook.com/projectlotusorg), local patrols and [neighbor watches](//nnw.org), [NYPD volunteering](//www1.nyc.gov/site/nypd/bureaus/administrative/programs.page), [asiangunsociety](//instagram.com/p/CL5FV1xDCHb)
 
 ### Report Crimes
 [StopAAPIHate.org](//t.co/tjHqwy28HY) is the de facto crime reporting as run by [A3PCon](//t.co/2IIhw7taKo) taking over where [OCA](//t.co/eNTNYoHB4z) stopped with [AAPIHateCrimes](//t.co/yX5ogNiir4) in 2018.
