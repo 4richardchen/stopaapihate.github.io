@@ -26,9 +26,9 @@ For confidential reporting with public reporting and protected anonymity (i.e. n
 
 For [#metoo](//twitter.com/hashtag/metoo) related, see [TimesUp Help](//t.co/878xO8wRJv) or [Emily Chang](//facebook.com/emilychangbloomberg), author of _[Broptopia](//en.wikipedia.org/wiki/Brotopia)_. [AAJA](//facebook.com/aaja) has tons more; not all are as outspoken (I've a [list](//twitter.com/i/lists/82469881)).
 
-[HateCrimeBook](//t.co/xFmQcABL79) is succinct howto in many languages.
+[HateCrimeBook](//t.co/xFmQcABL79) is excellently written in 7 languages.
 
-Warnings on Benny Luo's [NextShark](//twitter.com/NextShark) which is problematic clickbait whose [credibility](//twitter.com/eugenegu/status/1358846497861718018) threatens the cause; _Asian Dawn_ which willfully foments hate; [NBCAsianAmerica](//twitter.com/nbcasianamerica) which downplayed, ignored incidents for years, has only 2 writers, and its relative MSNBC [deleted Yang](//twitter.com/hashtag/MSNBCfearsYang); and that [most media ignore Asians](//thecrimson.com/article/2021/2/25/conde-media-coverage-asian-america-issues).
+Warnings on Benny Luo's [NextShark](//twitter.com/NextShark) which is problematic clickbait whose [credibility](//twitter.com/eugenegu/status/1358846497861718018) threatens the cause though some writers are well known such as [May Lee](//t.co/NUdbR2XXPD) of [The May Lee Show](//twitter.com/TheMayLeeShow); _Asian Dawn_ which willfully foments hate; [NBCAsianAmerica](//twitter.com/nbcasianamerica) which downplayed, ignored incidents for years, has only 2 writers, and its relative MSNBC [deleted Yang](//twitter.com/hashtag/MSNBCfearsYang); and that [most media ignore Asians](//thecrimson.com/article/2021/2/25/conde-media-coverage-asian-america-issues).
 
 ## Storytell
 Telling your story adds to the power. Witness the empowerment of [#metoo](//twitter.com/hashtag/metoo).
@@ -75,8 +75,10 @@ There're so so many. [Start here](//twitter.com/SimonTheTam/status/1361742934060
 ### Travel
 So many. [Start here](//t.co/cTOZ7tHBVd).
 
-### Military
+### Military, Veterans, National Defense and Intelligence
 So many. [Start here](//instagram.com/ddooonnnn). For the unfamiliar, Filipinos in the US military service is a huge long tradition steeped in history. See a [salute](//youtube.com/watch?v=pLq_07REniY).
+
+Orgs: [Lt. Kimlau Post 1291](//facebook.com/LtKimlauPost1291)
 
 ### Food, Culinary
 Insanity. [Martin Yan](//www.youtube.com/watch?v=MoHdVwXDgCI)
@@ -152,11 +154,13 @@ Speak about issues (not politics) at workplaces. Hold to task companies' marketi
 
 Orgs: [GlassDoor](//glassdoor.com/Reviews/index.htm)
 
-## Politics
+## Politics, Public Officials, Electeds
 Orgs: I made a [list](//twitter.com/i/lists/904070897807523840/members). TLDR: see [Yappie](//t.co/2LzYOsloxc)
 
-### Pressure Electeds
-Increase local resources for mental health, corrections, prosecution, law enforcement, local and community policing (PD's aren't only about SWAT and counterterrorism though those are also important), improved lawmaking process, community participation in all the aforementioned, disaggregated data, etc.
+More Orgs: [LAANY](//facebook.com/LAANY.org)
+
+### Advoacate, Pressure, Lobby, Influence
+Increase local resources for mental health, corrections (not mere incarceration for for-profit contractors), prosecution, law enforcement (they need public trust), local and community policing (PD's aren't only about SWAT and counterterrorism though also important), improved lawmaking process (legislation happens at all levels involving all citizenry), community participation in all the aforementioned.
 
 ### Help Electeds
 Volunteer for them because they do so much needing help including constituent services, media/PR/spokespersons/syndicates, outreach, legal research, writing, legislative coalition building, community affairs/relations, etc. Their campaigns are separate but needed orgs, too.
@@ -176,7 +180,7 @@ Mags: [Chinosity](//t.co/ZvCiqSsGmH), [Cold Tea Collective](//t.co/jU8eTN0yM2), 
 ## Build solidarity through intersectionality
 There's thousands of allied shared orgs, movements, causes, groups, and allies in so many areas, notably arts, cultural, ethnics, and social movements who've been doing related work for years, too. They might intersect more with your existing, deeper interests.
 
-Orgs: [AAWA](//facebook.com/AsianAmericanWomensAlliance), [NAPAWF](//t.co/Qpz7z469Pp); [Womankind](//facebook.com/nyawc.org), [SFAWS](//sfaws.org), [AAJA](//facebook.com/AAJAHQ), [SASE](//facebook.com/SASE), [AAPA](//aapaonline.org), [AILA](//facebook.com/AILANational), [AABNY](//facebook.com/aabany), [JACL](//facebook.com/JACLNational), [TALA](//facebook.com/1994TALA) 
+Orgs: [AAWA](//facebook.com/AsianAmericanWomensAlliance), [NAPAWF](//t.co/Qpz7z469Pp); [Womankind](//facebook.com/nyawc.org), [SFAWS](//sfaws.org), [AAJA](//facebook.com/AAJAHQ), [SASE](//facebook.com/SASE), [AAPA](//aapaonline.org), [AILA](//facebook.com/AILANational), [AABNY](//facebook.com/aabany), [JACL](//t.co/RGj7cc7r2Y), [TALA](//facebook.com/1994TALA); [NAAAP](//t.co/7vQQrrVi1g) which is uncannily like [AAAPNY](//facebook.com/groups/1651303801749164)
 
 ### Education
 Education is inherently a social movement.
