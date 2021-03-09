@@ -35,7 +35,7 @@ Telling your story adds to the power. Witness the empowerment of [#metoo](//twit
 
 It's different than reporting crimes since it's longer, not necessarily about a crime, and can be fictional.
 
-Orgs: [AsiansBelong](//facebook.com/AsiansBelong), [Hello Prosper](//facebook.com/helloprosper.co), [AAWW](//facebook.com/AsianAmericanWritersWorkshop), [Invisible Asians](//facebook.com/invisibleasians/posts/103494218467377), [Dear Asian Americans](//facebook.com/dearasianamericans), [iamasianamerican](//instagram.com/iam_asianamerican); [AzN Zoomer](//instagram.com/asianzoomer); [Very Asian Media](//t.co/xDkEBbVR9M]; [asiansneverdie](//instagram.com/asiansneverdie), [villyvillyvonka](instagram.com/villyvillyvonka); [fareastsociety8](instagram.com/fareastsociety8); [rooftop_asians_92](//instagram.com/rooftop_asians_92) ([what the reference means](//www.huffpost.com/entry/roof-koreans-meme-know-real-story_n_5ee110a1c5b6d5bafa5604f3)); [subtle asian traits](//facebook.com/groups/1343933772408499), [ANAF](//facebook.com/AsiansNowAsiansForever), [aapinarratives](//instagram.com/aapinarratives), [asiantravellersadvocate](//instagram.com/asiantravellersadvocate), 
+Orgs: [AsiansBelong](//facebook.com/AsiansBelong), [Hello Prosper](//facebook.com/helloprosper.co), [AAWW](//facebook.com/AsianAmericanWritersWorkshop), [Invisible Asians](//facebook.com/invisibleasians/posts/103494218467377), [Dear Asian Americans](//facebook.com/dearasianamericans) and their [AsianAm Club](//t.co/23ouFGAnxx) on ClubHouse, [iamasianamerican](//instagram.com/iam_asianamerican); [AzN Zoomer](//instagram.com/asianzoomer); [Very Asian Media](//t.co/xDkEBbVR9M]; [asiansneverdie](//instagram.com/asiansneverdie), [villyvillyvonka](instagram.com/villyvillyvonka); [fareastsociety8](instagram.com/fareastsociety8); [rooftop_asians_92](//instagram.com/rooftop_asians_92) ([what the reference means](//www.huffpost.com/entry/roof-koreans-meme-know-real-story_n_5ee110a1c5b6d5bafa5604f3)); [subtle asian traits](//facebook.com/groups/1343933772408499), [ANAF](//facebook.com/AsiansNowAsiansForever), [aapinarratives](//instagram.com/aapinarratives), [asiantravellersadvocate](//instagram.com/asiantravellersadvocate), 
 
 Related: Media, this section being focused on telling our stories specifically instead of more general storytelling and representation
 
@@ -50,6 +50,8 @@ For AAPI television series, only _[Queens the Series](//t.co/NsMdJoaVeL)_ is not
 For casting opportunities, industry email groups are best. Few get reposted to [groups actively keeping up with the news](//medium.com/@richardc020/washthehate-43cb5d0de773?source=friends_link&sk=d488ff5071ef42d7c1b99034288d8421).
 
 News Specials: "[Stop the Hate: The Rise in Violence Against Asian Americans](//facebook.com/CeFaanKimTV/posts/1618634198331654)" aired on ABCNews Live on Thursday, March 4, 2021 at 8p (ET), see the 00:15 long [trailer](//youtu.be/VTH9hTderTY?t=3030) and the 00:45 long [show](//youtu.be/VTH9hTderTY?t=4563); [WaPo's "Rise in Anti-Asian Violence"](//youtu.be/VT1mDgDjJ5g?t=10);
+
+Articles: So many. "[The long Western legacy of violence against Asian Americans](https://t.co/hpkT9L4cCs)" by [Jane C. Hu](//t.co/usrHKwJwbW); "[We Need to Put a Name to This Violence](//t.co/78ERTCLJYh)" by [Jay Caspian King](//twitter.com/jaycaspiankang)
 
 Entertainment News: [Ronny Chieng joins "Young Rock"](//www.facebook.com/ronnychiengpage/posts/276142187215801); need to point to some automated news roll
 
@@ -201,14 +203,14 @@ Mags: [Chinosity](//t.co/ZvCiqSsGmH), [Cold Tea Collective](//t.co/jU8eTN0yM2), 
 ## Build solidarity through Intersectionality
 There's thousands of allied shared orgs, movements, causes, groups, and allies in so many areas, notably arts, cultural, ethnics, and social movements who've been doing related work for years, too. They might intersect more with your existing, deeper interests.
 
-Orgs: [AAWA](//facebook.com/AsianAmericanWomensAlliance), [NAPAWF](//t.co/Qpz7z469Pp); [Womankind](//facebook.com/nyawc.org), [SFAWS](//sfaws.org), [AAJA](//facebook.com/AAJAHQ), [SASE](//facebook.com/SASE), [AAPA](//aapaonline.org), [AILA](//facebook.com/AILANational), [AABNY](//facebook.com/aabany), [JACL](//t.co/RGj7cc7r2Y), [TALA](//facebook.com/1994TALA); [NAAAP](//t.co/7vQQrrVi1g) which is uncannily like [AAAPNY](//facebook.com/groups/1651303801749164)
+Orgs: [AAWA](//facebook.com/AsianAmericanWomensAlliance), [NAPAWF](//t.co/Qpz7z469Pp); [Womankind](//facebook.com/nyawc.org), [SFAWS](//sfaws.org), [AAJA](//facebook.com/AAJAHQ), [SASE](//facebook.com/SASE), [AAPA](//aapaonline.org), [AILA](//facebook.com/AILANational), [AABNY](//facebook.com/aabany), [JACL](//t.co/RGj7cc7r2Y), [TALA](//facebook.com/1994TALA); [NAAAP](//t.co/7vQQrrVi1g) which is uncannily like [AAAPNY](//facebook.com/groups/1651303801749164); [Not In Our Town](//t.co/kAdo8wOJzk) and [Not In Our School](//t.co/SBZp7UdI0P) (Related: Youth);
 
 Events: [Wednesday, March 10, 2021 at 19:30 by Cheryl Leong](//facebook.com/cheryl.leong.731/posts/769539953968333)
 
 ### Education
 Education is inherently a social movement.
 
-Orgs: [Act To Change](//t.co/HhCwd7y0pE), an AAPI [BullyBust](//t.co/GBNCkQq1M6)/[Project Anti-Bully](//t.co/HYJnSTUSBj); also [Asian Articles](//t.co/ruCRbmF72I)
+Orgs: [Act To Change](//t.co/HhCwd7y0pE), an AAPI [BullyBust](//t.co/GBNCkQq1M6)/[Project Anti-Bully](//t.co/HYJnSTUSBj) or [Not In Our School](//t.co/SBZp7UdI0P); also [Asian Articles](//t.co/ruCRbmF72I)
 
 ## Credits, Sources, Reference, Meta
 1. "[Asian American Community Rallies Online](//medium.com/the-shadow/asian-american-community-rallies-online-to-address-hate-crimes-and-violent-attacks-37924300e45a?readmore=1&source=---------0----------------------------)"
