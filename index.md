@@ -11,11 +11,13 @@ title: StopAAPIHate.us
 [#StopAsianHate](//twitter.com/hashtag/StopAsianHate); [#StopAAPIHate](//twitter.com/hashtag/StopAAPIHate); [#HateIsAVirus](//twitter.com/hashtag/HateIsAVirus) ([Hate Is a Virus](//t.co/UKdnKDabMx); [#WashTheHate](//t.co/k41J1aMvE2); [JackFroot](//twitter.com/jackfrootnews)
 
 ## Help victims
-### Intervene
+### Patrol, Guard, Watch, Protect, Defend, Intervene
 
 Help the victim in real time. Train to avoid shock, delay, silence. It's not illegal to use force in self-defense. Train in [firearms](//t.co/DgmItFWXAj), other weaponry, martial arts, [self-defense](//youtube.com/watch?v=woL9f-R-OTs&list=PLewDws3GRrGgnx6bneWAXJvm9K3mJ98TS&index=1). 
 
-Orgs: [Hollaback!](//t.co/zKm2xhCZuw), [IMPACT](//t.co/QeYQB8vXdX), [Smart Defense](//t.co/0QUQDkGQKk); [East Bay Toishan Association](//t.co/PzTu5vyvJ3); [Guardian Angels](//t.co/OVuObeOShI), [CAENY](//t.co/hCP2hivM4X), [Oakland Compassion Project](//t.co/tdJNnuXWDu), [API Healer Network](//t.co/Ca0cv3pfEZ), [City of New York](//t.co/tnBhgEAyly), [Chicago CMA](//t.co/eySCi65xby), [Project Lotus](//facebook.com/projectlotusorg), local patrols and [neighbor watches](//nnw.org), [NYPD volunteering](//www1.nyc.gov/site/nypd/bureaus/administrative/programs.page), [asiangunsociety](//instagram.com/p/CL5FV1xDCHb)
+Orgs: [Sentinels](//facebook.com/groups/247390043497083): [Los Angeles Chinatown](//facebook.com/groups/247390043497083/user/100064190760567); [East Bay Toishan Association](//t.co/PzTu5vyvJ3); [Guardian Angels](//t.co/OVuObeOShI); [Oakland Compassion Project](//t.co/tdJNnuXWDu)
+
+Orgs: [Hollaback!](//t.co/zKm2xhCZuw), [IMPACT](//t.co/QeYQB8vXdX), [Smart Defense](//t.co/0QUQDkGQKk); [CAENY](//t.co/hCP2hivM4X), [API Healer Network](//t.co/Ca0cv3pfEZ), [City of New York](//t.co/tnBhgEAyly), [Chicago CMA](//t.co/eySCi65xby), [Project Lotus](//facebook.com/projectlotusorg), local patrols and [neighbor watches](//nnw.org), [NYPD volunteering](//www1.nyc.gov/site/nypd/bureaus/administrative/programs.page), [asiangunsociety](//instagram.com/p/CL5FV1xDCHb)
 
 ### Report Crimes
 [StopAAPIHate.org](//t.co/tjHqwy28HY) is the de facto crime reporting as run by [A3PCon](//t.co/2IIhw7taKo) taking over where [OCA](//t.co/eNTNYoHB4z) stopped with [AAPIHateCrimes](//t.co/yX5ogNiir4) in 2018.
