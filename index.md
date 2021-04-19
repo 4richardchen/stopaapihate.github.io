@@ -4,42 +4,50 @@ title: StopAAPIHate.us
 ---
 
 # What _you_ can do About anti-Asian Hate
+Read a simpler version of this page at [StopAsianHate.info](//t.co/f8iWLI8kuU) ([Tweet](//twitter.com/joeyng/status/1362922187611537408)); a [summary](//facebook.com/invisibleasians/posts/103494218467377); a [link list](//t.co/UiClM97MOj) ([alt](//bit.ly/aapilove)); an [explanation](//nextshark.com/anti-asian-assaults-racism-may-lee); or below.
 
 ## Be, Stay Informed
-[Track the hate](//twitter.com/RachelRoh) namely in [social media](//stopaapihate.org/reportsreleases); join groups actively informed (see "Groups" below); read a [summary](//facebook.com/invisibleasians/posts/103494218467377) or [an explanation](//nextshark.com/anti-asian-assaults-racism-may-lee) we're not quiet.
+[Track the hate](//twitter.com/RachelRoh) namely in [social media](//stopaapihate.org/reportsreleases) and groups. 
 
-Simpler version of this page: [StopAsianHate.info](//t.co/f8iWLI8kuU) ([Tweet](//twitter.com/joeyng/status/1362922187611537408))
+### Train your Algorithms
+All media profits from tracking user engagement to sell advertising access. Exploit it for your benefit. It's not "AI". It's advertising data haul.
 
-## Groups
-Facebook groups to join and train Facebook's algorithm to not bury anti-Asian American hate in its chase for user engagement for big data for Facebook Beacon sales for advertiser dollars. Nearly all groups filter membership requests to remove trolls, vandals, etc.
-* [AsiansNOW](//facebook.com/groups/asiansnow) — founded by the famed professor Dr. Larry Shinagawa to raise social awareness in the Asian diaspora (heavily East Asian as is typical) and the biggest at 13,500 members; especially useful is topic tag "[racism](//facebook.com/groups/1450447971654849/post_tags/?post_tag_id=1956436984389276)"; run by experienced admins including yours truly, founded by the late Dr. Shinagawa
-* [Asians Today](//facebook.com/groups/asianstoday) — an independent fork of [AsiansNOW](//facebook.com/groups/asiansnow) which is a less moderated version of [AsiansNOW](//facebook.com/groups/asiansnow) to expand its radius; run by former non-overlapping moderators of [AsiansNOW](//facebook.com/groups/asiansnow)
+#### Join Groups
+ClubHouse's [AAPI Townhall](//docs.google.com/document/d/1ofWEB6ZIPI6emYuYwPwWOuFcqGpk9tXgXLmXxeJqsIQ) has been foremost.
+
+Train Facebook's algorithm to not bury anti-Asian American hate. All Facebook use closely tracks user engagement (not just clicks, but lingers, scrolls, etc.) for big data for Facebook Beacon sales for advertiser dollars. Nearly all groups filter membership requests to remove trolls, vandals, etc.
+* [AsiansNOW](//facebook.com/groups/asiansnow) — founded by the famed professor Dr. Larry Shinagawa to raise social awareness in the Asian diaspora (heavily East Asian as is typical) and the biggest at 13,500 members; especially useful is topic tag "[racism](//facebook.com/groups/1450447971654849/post_tags/?post_tag_id=1956436984389276)"; run by 8 active, experienced admins including yours truly
+* [The #StopAsianHate To Do List](//facebook.com/groups/2671020096466397) - focuses on action
+* [Asians Today](//facebook.com/groups/asianstoday) — an independent fork of [AsiansNOW](//facebook.com/groups/asiansnow) is a less moderated version of [AsiansNOW](//facebook.com/groups/asiansnow) to expand its radius; run by former non-overlapping moderators of [AsiansNOW](//facebook.com/groups/asiansnow)
 * [Stop Racism Against Asian Americans](//facebook.com/groups/2527967444134996) - more empathy and heart and optimism; run by Adam Manhbaoboua who’s very empathetic himself
 * [Asian Americans United Against Violence](//facebook.com/groups/240524854010441) - emphasizes quicker, more aggressive justice and anger against perps — run by TaeWoo Kim, a strident defender of the community and well known in LA
 * [Crimes Against Asians](//facebook.com/groups/crimesagainstasians) - was a super-popular private group, now less popular due to bad news burnout; not to be confused with its public page of the same name — run by NextShark with the same clickbait model and approving only their own content
 * [Asian Americans (& allies ) VS the Model Minority Myth](//facebook.com/groups/792343574185384) — specializes in fighting the model minority myth — run by Errol Lam and yours truly
-* [Asians Not Brainwashed By Media Lapping Up Amy Chua](//facebook.com/groups/420895108043294/) - excellent quality curation of Asian American history, arts, and less political more advocacy — run by a friend, the Brooklyn-based artist Akiko Ichikawa; not to be confused with the similarly named [Asians Not Brainwashed by Media - Official Group](//facebook.com/groups/anbmsource/) which starts off seemingly innocently for the community but is a men's rights free-for-all
+* [Asians Not Brainwashed By Media Lapping Up Amy Chua (ANBM-LUAC)](//facebook.com/groups/420895108043294) - excellent quality curation of Asian American history, arts, and less political more advocacy — run by a friend, the Brooklyn-based artist Akiko Ichikawa; not to be confused with the similarly named [Asians Not Brainwashed by Media - Official Group (ANBM)](//facebook.com/groups/anbmsource/) which starts off seemingly innocently for the community but is a men's rights free-for-all
 * [Global Asians for Action and Social Change (GAASC)](//facebook.com/groups/GlobalAsians) - focused on actionable social change — run by very principled all-stars, but perhaps too sedate for this era
 * [API Hate Crimes & Equity Initiatives (AHCEI)](//facebook.com/groups/822050604959359) (formerly API Crime Info Hub) — positive advocacy, including writing to encourage AAPI electeds — run by Yun-Sook Kim, an experienced LA-based community leader and yours truly
 * [Unity: Strength in Numbers](//facebook.com/groups/58419352884917) — positive news — founded by Nina Koo, a reliable NYC/SGV organizer, and Linda Chan; moderated by other veteran NYC organizers
-And orgs:
-* [AAAAR — Asian American Alliance Against Racism](//facebook.com/groups/142455397210001) - as name says; used to be make alliances with allies to increase our power but now paranoid about any mentions of other groups to the point they delete such comment; run tightly though their purpose is co-opted by so many other groups thus they've a rule strictly banning any mention of other groups
 
-## Keep a Public Report
-While there's [StopAAPIHate.org](//t.co/tjHqwy28HY) to centralize reporting, there're still missing public information thus edit [Wikipedia's a long list of such attacks](//en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_COVID-19_pandemic#New_York) and review [its history for vandalism](//en.wikipedia.org/w/index.php?title=Xenophobia_and_racism_related_to_the_COVID-19_pandemic&action=history).
+Just say no:
+* [Asian American Alliance Against Racism (AAAAR)](//facebook.com/groups/142455397210001) - warning: paranoid, poorly-run group with rampant, intentional, toxic, infighting, a no-care free-for-all hands-off except when the admins' sense of control is threatened, no-warning removals for no given reason; they reap the chaos they sowed; as such, they've been co-opted by the aforementioned groups
 
-There're so many formatsi: [video about AAPI history](//youtube.com/watch?v=rFbHml5ba0M) (13:13), [cartoon about what we feel](//instagram.com/p/CMtl68GAtZe).
+## Report Publicly, Privately
+Report privately at [StopAAPIHate.org](//t.co/tjHqwy28HY) or contact a Journalist listed below.
 
-An exellent 01:10 documentary "[We Need to Talk About Anti-Asian AAmerican Hate](//t.co/iA23jxAlDW)" by [Eugene Lee Yang](//twitter.com/EugeneLeeYang) with the TryGuys.
+In Canada: [Fight COVID Racism](//t.co/u116DoPExF) ([Tweet](//twitter.com/CdnHumanRights/status/1266426222663421956)) (non-US but parallel)
 
-[#StopAsianHate](//twitter.com/hashtag/StopAsianHate); [#StopAAPIHate](//twitter.com/hashtag/StopAAPIHate); [#HateIsAVirus](//twitter.com/hashtag/HateIsAVirus) ([Hate Is a Virus](//t.co/UKdnKDabMx); [#WashTheHate](//t.co/k41J1aMvE2); [JackFroot](//twitter.com/jackfrootnews)
+Report publicly at [Wikipedia's a long list of such attacks](//t.co/ZjhkbXa6OG) (Wikipedia requires citations for all content, come prepared) and review [its history](//en.wikipedia.org/w/index.php?title=//en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_COVID-19_pandemic#New_YorkXenophobia_and_racism_related_to_the_COVID-19_pandemic&action=history) for vandals.
+
+Media: [video about AAPI history](//y2u.be/rFbHml5ba0M) (13:13), [cartoon about what we feel](//instagram.com/p/CMtl68GAtZe)
+
+[#StopAsianHate](//twitter.com/hashtag/StopAsianHate); [#StopAAPIHate](//twitter.com/hashtag/StopAAPIHate); [#HateIsAVirus](//twitter.com/hashtag/HateIsAVirus) by [Hate Is a Virus](//t.co/UKdnKDabMx); [#WashTheHate](//t.co/k41J1aMvE2); [#StandWithAsianAmericans](//t.co/77fPOgFgUp) ([Facebook](//facebook.com/story.php?story_fbid=10106045722006433&id=205370), [Twitter](//twitter.com/davelu/status/1377276256513785859)); [JackFroot](//linktr.ee/Jackfroot)
 
 ## Help victims
 ### Patrol, Guard, Watch, Protect, Defend, Intervene
 
-Help the victim in real time. Train to avoid shock, delay, silence. It's not illegal to use force in self-defense. Train in [firearms](//t.co/DgmItFWXAj), other weaponry, martial arts, [self-defense](//youtube.com/watch?v=woL9f-R-OTs&list=PLewDws3GRrGgnx6bneWAXJvm9K3mJ98TS&index=1). 
+Help the victim in real time. Train to avoid shock, delay, silence. It's not illegal to use force in self-defense. Train in [firearms](//t.co/DgmItFWXAj), weapons (umbrellas, pepper spray, bear spray, belts, hammers, etc.), martial arts, [self-defense](//youtube.com/watch?v=woL9f-R-OTs&list=PLewDws3GRrGgnx6bneWAXJvm9K3mJ98TS&index=1). 
 
-Orgs: [Sentinels](//facebook.com/groups/247390043497083): [Los Angeles Chinatown](//facebook.com/groups/247390043497083/user/100064190760567); [East Bay Toishan Association](//t.co/PzTu5vyvJ3); [Guardian Angels](//t.co/OVuObeOShI); [Oakland Compassion Project](//t.co/tdJNnuXWDu)
+Orgs: [Sentinels](//facebook.com/groups/247390043497083): [Los Angeles Chinatown](//facebook.com/groups/247390043497083/user/100064190760567); [United Peace Collaborative](//t.co/ofto5i2IXe) (SF Chinatown; formerly United Peace Corps); [East Bay Toishan Association](//t.co/PzTu5vyvJ3); [Guardian Angels](//t.co/OVuObeOShI); [Oakland Compassion Project](//t.co/tdJNnuXWDu)
 
 Orgs: [Hollaback!](//t.co/zKm2xhCZuw), [IMPACT](//t.co/QeYQB8vXdX), [Smart Defense](//t.co/0QUQDkGQKk); [CAENY](//t.co/hCP2hivM4X), [API Healer Network](//t.co/Ca0cv3pfEZ), [City of New York](//t.co/tnBhgEAyly), [Chicago CMA](//t.co/eySCi65xby), [Project Lotus](//facebook.com/projectlotusorg), local patrols and [neighbor watches](//nnw.org), [NYPD volunteering](//www1.nyc.gov/site/nypd/bureaus/administrative/programs.page), [asiangunsociety](//instagram.com/p/CL5FV1xDCHb)
 
@@ -50,48 +58,47 @@ Victims often won't report crimes due to language difficulty, cultural shame for
 
 For confidential reporting with public reporting and protected anonymity (i.e. not _NY Post_ who unethically, unwantedly outed [Lauren Kwei](//www.rollingstone.com/culture/culture-news/onlyfans-emt-lauren-kwei-1103336) who [reappropriated her name and fame](//rollingstone.com/culture/culture-news/onlyfans-medic-lauren-kwei-new-york-post-interview-1104943)), see [Dion Lim](//facebook.com/DionLimTV) and [Betty Yu](//facebook.com/BettyYuLive) in SF, [CeFaan Kim](//facebook.com/CeFaanKimTV) and [Vicky Nguyen](//t.co/H1idgZnvam) and [William Lex Ham](//twitter.com/WillLexHam) in NYC, [Nydia Han](//t.co/LyKHF4szvR) in Philadelphia, Randall Yip at [AsAmNews](//facebook.com/AsAmNews), et al.
 
-For [#metoo](//twitter.com/hashtag/metoo) related, see [TimesUp Help](//t.co/878xO8wRJv) or [Emily Chang](//facebook.com/emilychangbloomberg), author of _[Broptopia](//en.wikipedia.org/wiki/Brotopia)_. [AAJA](//facebook.com/aaja) has more (I've a [list](//twitter.com/i/lists/82469881)).
+For [#metoo](//twitter.com/hashtag/metoo) related, see [TimesUp Help](//t.co/878xO8wRJv) or [Emily Chang](//twitter.com/emilychangtv), author of _[Broptopia](//t.co/rfdUG7kt2d)_. [AAJA](//t.co/q3akNvOApN) has more (I've a [list](//twitter.com/i/lists/82469881)).
 
 [HateCrimeBook](//t.co/xFmQcABL79) is excellently written in 7 languages.
 
 Warnings:
-1. Benny Luo's [NextShark](//twitter.com/NextShark) which is problematic clickbait whose [credibility](//twitter.com/eugenegu/status/1358846497861718018) threatens the cause; some contributors are more credible such as [May Lee](//t.co/NUdbR2XXPD) of [The May Lee Show](//twitter.com/TheMayLeeShow) though they share in the attention
-1. _Asian Dawn_ which willfully foments hate namely against blacks since it's the most accessible; they're full of controversy
-1. [NBCAsianAmerica](//twitter.com/nbcasianamerica) which downplayed, ignored incidents for years, has only 2 writers, and its relative MSNBC [deleted Yang](//twitter.com/hashtag/MSNBCfearsYang)
-1. [PlanA Magazine](//t.co/60tIjt9LQW) which goes so strong to the point of attacking everyone as to intentionally use hate mongering to grow readership
-1. anonymous media which seeks to divide a-la-Asian-Dawn like YouTube channel [Asian Lives Matter](//youtube.com/channel/UC6cWZcuD9kNnuaWAoIeDibg)
-1. [most media ignore Asians](//thecrimson.com/article/2021/2/25/conde-media-coverage-asian-america-issues).
+1. Benny Luo's [NextShark](//twitter.com/NextShark) is clickbait whose [credibility](//twitter.com/eugenegu/status/1358846497861718018) threatens the cause; some contributors are more credible such as [May Lee](//t.co/NUdbR2XXPD) of [The May Lee Show](//twitter.com/TheMayLeeShow) though they share in the attention
+1. _Asian Dawn_ foments hate namely against blacks since it's the most clickbaitey; they're full of controversy they enjoy sowing
+1. [NBCAsianAmerica](//twitter.com/nbcasianamerica) which downplayed, ignored incidents for years, has only 2 writers, and [deleted Yang](//twitter.com/hashtag/MSNBCfearsYang)
+1. [PlanA Magazine](//t.co/60tIjt9LQW) is purposefully abrasive, condesending intentionally hate monger to grow readership
+1. so many anonymous like [Asian Lives Matter](//youtube.com/channel/UC6cWZcuD9kNnuaWAoIeDibg)
+1. [most media ignore Asians](//thecrimson.com/article/2021/2/25/conde-media-coverage-asian-america-issues) as their goals are not ours
 
 ## Storytell
 Telling your story empowers you, the silent, and our community (i.e. [#metoo](//twitter.com/hashtag/metoo)).
 
-Orgs: [East Side Stories](//www.eastsidestories.org/mission-statement) by [Yuena Li](//youtube.com/user/SimplyYue); [AsiansBelong](//facebook.com/AsiansBelong), [Hello Prosper](//facebook.com/helloprosper.co), [AAWW](//facebook.com/AsianAmericanWritersWorkshop), [Invisible Asians](//facebook.com/invisibleasians/posts/103494218467377), [Dear Asian Americans](//facebook.com/dearasianamericans) and their [AsianAm Club](//t.co/23ouFGAnxx) on ClubHouse, [iamasianamerican](//instagram.com/iam_asianamerican); [AzN Zoomer](//instagram.com/asianzoomer); [Very Asian Media](//t.co/xDkEBbVR9M); [asiansneverdie](//instagram.com/asiansneverdie), [villyvillyvonka](instagram.com/villyvillyvonka); [fareastsociety8](instagram.com/fareastsociety8); [rooftop_asians_92](//instagram.com/rooftop_asians_92) ([what the reference means](//www.huffpost.com/entry/roof-koreans-meme-know-real-story_n_5ee110a1c5b6d5bafa5604f3)); [subtle asian traits](//facebook.com/groups/1343933772408499), [ANAF](//facebook.com/AsiansNowAsiansForever), [aapinarratives](//instagram.com/aapinarratives), [asiantravellersadvocate](//instagram.com/asiantravellersadvocate); [streetvoicesto](//instagram.com/streetvoicesto) (non-US but excellent)
+Orgs: [InTheVisible](//t.co/DUZfWFc1UA) by [Lucia Tran](); [East Side Stories](//www.eastsidestories.org/mission-statement) by [Yuena Li](//youtube.com/user/SimplyYue); [AsiansBelong](//t.co/wNrH4ARf6h) (doesn't link to their [Twitter](//twitter.com/AsiansBelong)), [Hello Prosper](//helloprosper.co), [AAWW](//t.co/VvnNO9zMmZ), [Invisible Asians](//t.co/9q3KHfaQ3z) ([infographic](//facebook.com/invisibleasians/posts/103494218467377)), [Dear Asian Americans](//facebook.com/dearasianamericans) and their [AsianAm Club](//t.co/23ouFGAnxx) on ClubHouse, [iamasianamerican](//instagram.com/iam_asianamerican); [AzN Zoomer](//instagram.com/asianzoomer); [Very Asian Media](//t.co/xDkEBbVR9M); [asiansneverdie](//instagram.com/asiansneverdie), [villyvillyvonka](instagram.com/villyvillyvonka); [fareastsociety8](instagram.com/fareastsociety8); [rooftop_asians_92](//instagram.com/rooftop_asians_92) ([what the reference means](//www.huffpost.com/entry/roof-koreans-meme-know-real-story_n_5ee110a1c5b6d5bafa5604f3)); [subtle asian traits](//facebook.com/groups/1343933772408499), [ANAF](//facebook.com/AsiansNowAsiansForever), [aapinarratives](//instagram.com/aapinarratives), [asiantravellersadvocate](//instagram.com/asiantravellersadvocate); [streetvoicesto](//instagram.com/streetvoicesto) (non-US but excellent); [18millionrising](//t.co/l7Ru73XKzE) (used to be more stories, now veering towards politics)
 
-Users using #StopAAPIHate to propel personal agendas mostly fringe/alt/extremist ones: [mfbt](//twitter.com/mfbt) (excessively divisive, needlessly inflamatory, hotly reactive), [InterArma](//twitter.com/Mont_Jiang) (pro-CCP) thus reminder that our enemies' enemies aren't friends merely acquaintances.
+Users using [#StopAAPIHate](//twitter.com/hashtag/StopAAPIHate) for personal agendas, reminders that our enemies' enemies aren't friends: [mfbt](//twitter.com/mfbt) (excessively divisive, needlessly inflamatory, excessively reactive), [InterArma](//twitter.com/Mont_Jiang) (pro-CCP); [Amanda](//twitter.com/catcontentonly) (willfully fires on anyone, especially non-Communists; [kratom](//t.co/Crwrb1yopX) proponent)
 
-Related: Media
+Related: [Media](#represent-in-media)
 
 This is different than reporting crimes since it's longer, not necessarily about a crime, and can be fiction. This is different than media as it's about our stories not others' stories.
-
 
 ### Represent in Media
 Media includes not just entertainment industry (see [Nancy Wang Yuen](//t.co/43HC1QkOFX)) and journalism ([political journalists](//twitter.com/i/lists/1231328521475231745), [AAPI journalists](//twitter.com/i/lists/87671182)), but all public life outlets.
 
-For AAPI television series, see [Wikipedia](//en.wikipedia.org/wiki/American_television_series_with_Asian_leads) lacking only _[Queens the Series](//t.co/NsMdJoaVeL)_.
+AAPI television series: [Wikipedia](//en.wikipedia.org/wiki/American_television_series_with_Asian_leads) lacking only _[Queens the Series](//t.co/NsMdJoaVeL)_.
 
 For casting opportunities, industry email groups are best. Barely any get reposted to [groups actively keeping up with the news](//medium.com/@richardc020/washthehate-43cb5d0de773?source=friends_link&sk=d488ff5071ef42d7c1b99034288d8421).
 
-News Specials: "[Stop the Hate: The Rise in Violence Against Asian Americans](//facebook.com/CeFaanKimTV/posts/1618634198331654)" aired on ABCNews Live on Thursday, March 4, 2021 at 8p (ET), see the 00:15 long [trailer](//youtu.be/VTH9hTderTY?t=3030) and the 00:45 long [show](//youtu.be/VTH9hTderTY?t=4563); [WaPo's "Rise in Anti-Asian Violence"](//youtu.be/VT1mDgDjJ5g?t=10); PBS's "[Asian Americans](//t.co/L4hi3AIcVD)" is 5h long but a comprehensive all-in look at our history, good and bad, all free online; Betty Yu's "[Asians Under Attack: The Bay Area Reacts](//cbsloc.al/3vLdnbD) aired March 21 at 21:00 local time. A followup on ABCNews was "[Murder in Atlanta]()".
+News Specials: "[Stop the Hate: The Rise in Violence Against Asian Americans](//facebook.com/CeFaanKimTV/posts/1618634198331654)" aired on ABCNews Live on Thursday, March 4, 2021 at 8p (ET), [trailer](//y2u.be/VTH9hTderTY?t=3030) (00:15) and long [show](//y2u.be/VTH9hTderTY?t=4563) (00:45); [WaPo's "Rise in Anti-Asian Violence"](//y2u.be/VT1mDgDjJ5g?t=10); PBS's "[Asian Americans](//t.co/L4hi3AIcVD)" is 5h long but a comprehensive all-in look at our history, good and bad, all free online; Betty Yu's "[Asians Under Attack: The Bay Area Reacts](//cbsloc.al/3vLdnbD) aired March 21 at 21:00 local time; followup on ABCNews was "[Murder in Atlanta]()"; "[We Need to Talk About Anti-Asian American Hate](//t.co/iA23jxAlDW)" by [Eugene Lee Yang](//twitter.com/EugeneLeeYang); "[Building It Better Together Town Hall: Take Action Against Hate for Asian Americans](//t.co/GUJc2zUoJQ)" by [Nydia Han](//t.co/LyKHF4szvR)
 
-Articles: So many. Probably better left for some news roll in another system. Nonetheless, for now: "[A History Of Anti-Asian Racism](//t.co/cbM4tCbVYS)" by [Sam Sanders](//t.co/SclbzwJQzT); "[The long Western legacy of violence against Asian Americans](//t.co/hpkT9L4cCs)" by [Jane C. Hu](//t.co/usrHKwJwbW); "[We Need to Put a Name to This Violence](//t.co/78ERTCLJYh)" by [Jay Caspian King](//twitter.com/jaycaspiankang); "[The most effective way to fight back against anti-Asian hate](//t.co/R7pYE0Ym2m)" by [Pawan Dhingra](//t.co/OmqvBC4TI8)
+Articles: So many. Probably better left for some news roll in another system. Nonetheless, for now: "[A History Of Anti-Asian Racism](//t.co/cbM4tCbVYS)" by [Sam Sanders](//t.co/SclbzwJQzT); "[The long Western legacy of violence against Asian Americans](//t.co/hpkT9L4cCs)" by [Jane C. Hu](//t.co/usrHKwJwbW); "[We Need to Put a Name to This Violence](//t.co/78ERTCLJYh)" by [Jay Caspian King](//twitter.com/jaycaspiankang); "[The most effective way to fight back against anti-Asian hate](//t.co/R7pYE0Ym2m)" by [Pawan Dhingra](//t.co/OmqvBC4TI8); "[It was a Banner Year for Asian Representation. Now What?](//t.co/dAPichP8k6)" by [Connie Wang](//t.co/94EZLlhrom); "[Catching Up with NYC's 'Vaccine Daddy'](//t.co/eiyyF3BU3q)" by [Sangeeta Sinch-Kurtz](//t.co/60HrnR65vF); "[Why there’s an ‘impulse’ to erase the experience of Asian Americans](//t.co/snTVQqXxSx)" by [Stephanie Sy](//twitter.com/thestephsy), [Kim Tran](//t.co/MeMQa437rM)
 
-Entertainment News: [Ronny Chieng joins "Young Rock"](//facebook.com/ronnychiengpage/posts/276142187215801); Margaret Cho speaks [at public rallies](//t.co/Th8HNLASnJ) and [online](//www.facebook.com/officialmargaretcho/videos/10151626537049978)
+Entertainment News: [Ronny Chieng joins "Young Rock"](//facebook.com/ronnychiengpage/posts/276142187215801); Margaret Cho speaks [at public rallies](//t.co/Th8HNLASnJ) and [online](//www.facebook.com/officialmargaretcho/videos/10151626537049978); [차(Cha), ashort film](//seedandspark.com/fund/chashortfilm#story); "[Lucy Liu Swears By Acupuncture, A Vegetarian Diet, And SoulCycle To Feel Her Best]()" by [Helen Jung])
 
 Fine Arts: [Clarion Alley Mural](//gofundme.com/f/antiasian-racism-art-mural-in-clarion-alley)
 
-Performing Arts (non-Recorded, non-Music): [Braznazn](//twitter.com/braznazn)
+Performing (Dance) Arts: [Braznazn](//twitter.com/braznazn)
 
-Orgs: [CAPE](//facebook.com/cape), [Gold House](//t.co/v5QwqaBFVw)'s [#GoldOpen](//twitter.com/search?q=%23GoldOpen), [Asians in LA](//facebook.com/groups/asiansinla), [RepresentASIAN](//facebook.com/representasianproject); [CAAM](//t.co/HNBAxqsZZ4); [FilAm ARTS](//t.co/lGJeuP9Kqv); [Asian Boss](//t.co/JNoskV67KG)
+Orgs: [CAPE](//t.co/TFxGdzfhLa), [Gold House](//t.co/v5QwqaBFVw)'s [#GoldOpen](//twitter.com/hasthag/GoldOpen), [Asians in LA](//facebook.com/groups/asiansinla), [RepresentASIAN](//facebook.com/representasianproject); [CAAM](//t.co/HNBAxqsZZ4); [FilAm ARTS](//t.co/lGJeuP9Kqv); [Asian Boss](//t.co/JNoskV67KG); [Start with 8 Hollywood](//t.co/tL4WtIo3Hc) by [Thuc Nguyen](//t.co/JYAwqs4CKV)
 
 Most actors are outspoken, notably: [George Takei](//t.co/FESrB1JExy); [Daniel Dae Kim](//twitter.com/danieldaekim) and [Daniel Wu](//twitter.com/danielwuyanzu); [Olivia Munn](//twitter.com/oliviamunn)
 
@@ -104,52 +111,57 @@ Podcasts: [AZI Media](//t.co/CKxWeRS4XH)'s "[At the Moment](//t.co/Sv7o8Y1toG)",
 AAPI YouTubers are many with an [illustrious history](//coldteacollective.com/a-look-back-at-youtubes-original-asian-creators) with space for [complex voices](//studybreaks.com/tvfilm/asian-american-youtubers) mainstream media won't find "[bankable](//twitter.com/kristenmeinzer/status/1366132279022661633)" enough.
 Channels (exclude mainstream outlets): [Asian Theory](//youtube.com/c/TheAsianTheory/about)
 
-Specially good: [6 Asian Women Have Been Murdered](//youtube.com/watch?v=JG0UdCuoCgM) ([Facebook](//www.facebook.com/100044407870447/videos/156262276352249) by Anna Akana
+Specially good: [6 Asian Women Have Been Murdered](//y2u.be/JG0UdCuoCgM) (03:36) ([Facebook](//facebook.com/100044407870447/videos/156262276352249)) by [Anna Akana](//twitter.com/annaakana)
+
 ### Literature: Bookstores
 There're just a few: [Asian American Curriculum Project, San Mateo, CA](//t.co/XyfI4dimws); [Eastwind, Berekely, CA](//t.co/QZnQJxd9Ti), [Philippines Expressions, San Pedro, CA](//yelp.com/biz/philippine-expressions-bookshop-san-pedro).
 
 ### Literature: Authors
 I made a [list](//twitter.com/i/lists/1192831042706694149). Particularly outspoken is [Viet Thanh Nguyen](//t.co/5g1NkoOJ0B). There's so many lists of kids' books including from [Pragmatic Mom](//twitter.com/pragmaticmom/status/1372936158834008069) where I left comment citing [Raising Luminaries](//t.co/16ckXtbM3x) and [Books for Littles](//t.co/ZSj1xMQMTa) and GoodReads (start with [these lists](//www.goodreads.com/search?search_type=lists&q=asian+american) or [this book](//www.goodreads.com/book/show/52845775-minor-feelings)).
 
+Articles: "[Keeping Love Close](//t.co/xNFZBIItPp)" by [Celeste Ng](//t.co/QuNa225TPq)
+
 #### Literature: Youth, Parents, Parenting
-Org: [BiCultural Mama](//t.co/cEXv6hQFRy); [Pragmatic Mom](//t.co/Hp4o00uI9q); [Raising Luminaries](//t.co/CCBi7TUNek) (formerly [Books for Littles](//twitter.com/hashtag/booksforlittles))
+Org: [BiCultural Mama](//t.co/cEXv6hQFRy); [Pragmatic Mom](//t.co/Hp4o00uI9q) (notably [this list](//bit.ly/2KOlBZ1)); [Raising Luminaries](//t.co/CCBi7TUNek) (formerly [Books for Littles](//twitter.com/hashtag/booksforlittles))
 
 Articles: "[Your Asian Friends Are Not Okay](//www.scarymommy.com/your-asian-friends-not-okay/)" by [Virginia Duan / Mandarin Mama](//t.co/OWRkDUxNeF)
 
 ### Athletics
-[Start here](//twitter.com/SimonTheTam/status/1361742934060773376).
+[more](//twitter.com/SimonTheTam/status/1361742934060773376).
 
-Articles: "Jeremy Lin: [Despite Anger After Atlanta, There's Hope](//t.co/KBNEbbaYFl)"
+Problematic is CrossFit for permitting anti-Asian hate.
 
-### Music
-[Simon Tam](//t.co/NLsI4mOQdn); [Kollaboration](//t.co/zBqzjGTlJq). [Start here](//twitter.com/search?q=bruno%20mars%20%23APAHM&src=typed_query).
+Articles: "Jeremy Lin: [Despite Anger After Atlanta, There's Hope](//t.co/KBNEbbaYFl)"; "[Olympic gold medalist Chloe Kim shares her experiences with anti-Asian hate](//t.co/6MrHiqoZFY)"; [Kareem Abdul-Jabbar: Hollywood Must Do More to Combat Asian Stereotypes](//t.co/y2BiyP89mb); [Dwyane Wade](//twitter.com/NBAonTNT/status/1377859857705959427)
 
-Related: Arts
+### Performing (Musical) Arts
+[Simon Tam](//t.co/NLsI4mOQdn); [Kollaboration](//t.co/zBqzjGTlJq); "[Tonight](//t.co/VIZdOHoQco)" by [The Hotel Lobby](//t.co/JiJla1T3eQ); [88Rising]() which airs on [SiriusXM](//blog.siriusxm.com/there-there-88-rising-radio/) and includes series like "[There, There](//t.co/ifBeNpFhZw) and airs countless AAPI artists; [more](//twitter.com/search?q=bruno%20mars%20%23APAHM&src=typed_query).
+
+Related: [Performing (Dance) Arts](#represent-in-media)
 
 ### Travel
-[Start here](//t.co/cTOZ7tHBVd).
+[more](//t.co/cTOZ7tHBVd)
 
 ### Military, Veterans, National Defense and Intelligence
-[Start here](//instagram.com/ddooonnnn). Filipinos in the US military have a major, long affiliation then and now. See a [salute](//youtube.com/watch?v=pLq_07REniY).
+[more](//instagram.com/ddooonnnn). Filipinos in the US military have a major, long affiliation then and now. See a [salute](//y2u.be/pLq_07REniY) (03:32).
 
 Orgs: [Lt. Kimlau Post 1291](//facebook.com/LtKimlauPost1291)
 
-### Food, Culinary
-[Martin Yan](//youtube.com/watch?v=MoHdVwXDgCI)
+### Food, Cooking, Culinary
+[Subtle Asian Cooking](//t.co/8f6R7EhVxy); [Martin Yan](//y2u.be/MoHdVwXDgCI?t=8) (26:48); [Yelp's Asian-owned business attribute](//t.co/8mhjO7Utkv)
 
 ## Support AAPI Businesses
-[Start here](//news.yahoo.com/8-asian-owned-beauty-brands-110000728.html)
+[more](//news.yahoo.com/8-asian-owned-beauty-brands-110000728.html)
 
-Orgs: [OpenMeal](//t.co/wCGE4skkYt); [Welcome to Chinatown](//t.co/iPCO9l9Izp); [asiansofcreation](//instagram.com/asiansofcreation) each of which leads to dozens more businesses
+Orgs: [Stand With Asian Americans](//standwithasianamericans.com); [OpenMeal](//t.co/wCGE4skkYt); [Welcome to Chinatown](//t.co/iPCO9l9Izp); [asiansofcreation](//instagram.com/asiansofcreation) each of which leads to dozens more businesses
 
 Stories: [Nikki of Antonik's BBQ](//twitter.com/azidotmedia/status/1359997993940828163)
 
 Yelp, the leading business review service, could use a feature like their much-touted [black-owned businesses](//blog.yelp.com/2020/06/yelp-teams-up-with-my-black-receipt-to-support-black-owned-businesses). Blog entries for [ATL OTP](//blog.yelp.com/2020/06/meet-the-asian-american-pacific-islander-business-owners-of-otp), [SGV](//blog.yelp.com/2020/05/celebrating-aapi-business-owners) inform [my list](). Warning is that Asian restaurants are too often not Asian _owned_, I made [a list]() of those. Note we must keep a watch that folks like [Arielle Haspel](//t.co/rNKXotRvM7) never again disrespect Asian cuisine.
 
 ## Get Justice
-Do so in a way that doesn’t perpetuate more racism, hate, mass incarceration culture, etc. Bail reform let the perps in recent crimes back to the streets which isn't to say all Democratic Party movements are wrong. Reform such imprecise legal efforts. Follow their playbook.
+Do so in a way that doesn’t perpetuate more racism, hate, mass incarceration culture, poverty, inequity (not hte kind that eliminates grades, rather, the kind that allows for real merit, a tricky idea to implement), oppression by the unfairly empowered, etc. Bail reform lets perps in recent crimes back onto streets within hours of apprehension, but not all Democratic Party movements are wrong. Reform such imprecise legal efforts. Follow their playbook and give credit.
 
-Orgs: [Legal Aid Society](//facebook.com/thelegalaidsociety), [FBANC](//t.co/J2dYDrbn06); [CAPABA](//twitter.com/capabaorg); [AABA](//aabany.org), [AALDEF](//aaldef.org), [AAAJ](//advancingjustice-atlanta.org), [NAPABA](//napaba.org/page/HateCrimeResources) ([source](//facebook.com/groups/asiansnow/permalink/4117709511595335))
+Orgs: [Legal Aid Society](//facebook.com/thelegalaidsociety), [FBANC](//t.co/J2dYDrbn06); [APABAPA](//t.co/p8fv7OzDWz); [CAPABA](//twitter.com/capabaorg); [AABA](//aabany.org), [AALDEF](//aaldef.org), [AAAJ](//advancingjustice-atlanta.org), [NAPABA](//napaba.org/page/HateCrimeResources) ([source](//facebook.com/groups/asiansnow/permalink/4117709511595335))
 
 ### Translate
 Get “language justice” and in-language access at all levels. Volunteer your translation skill.
@@ -160,16 +172,18 @@ Because not breaking out Asian data leads to the model minority myth as if we're
 Orgs: [AAPIData](//t.co/UcKelpUGIQ)
 
 ## Raise Awareness
-Those outside of the community need to know. Tell them. Social media is the key. One-on-one even better. In person even better for better communication. Don't preach to the choir. Reach those outside of self-selecting environments like those listed here.
+Many in our own community and nearly all outside of our news echo chambers do not know. Tell them. Social media is the key. One-on-one even better. In person even better for better communication. Don't preach to the choir. Reach those outside of self-selecting environments like those listed here.
 
 Orgs: [AAFederation](//twitter.com/AAFederation)'s [#StandForAsians](//twitter.com/search?q=%23StandforAsians&src=typeahead_click); [The Hello Project](//medium.com/the-hello-project/the-beginning-of-the-hello-project-b5f71bb7d191); Asians4Blacks [NYC](//facebook.com/Asians4BlackLivesNYC), [Portland](//facebook.com/PDXAsians4BlackLives); [#asians4blm](//twitter.com/hashtag/asians4blm); [blacklives4asians](//instagram.com/blacklives4asiansareessential)
 
-Related: Build solidarity, Rally
+Related: [Build solidarity Through Intersectionality](#build-solidarity-through-intersectionality), [Rally](#rally)
 
 ## Rally
 Gets mass media's attention, focuses community emotions, and reaches a wider audience.
 
-Too many to list, I got these before I couldn't keep up: [Thu Mar 4 9a at SF Hall of Justice, 850 Bryant St, 94103](//facebook.com/StandForAsians/posts/114596594013073) with [@StandForAsiansCA](//instagram.com/StandForAsiansCA)/[@StandForAsians](//facebook.com/StandForAsians); [AAFederation](//twitter.com/AAFederation)'s [#StandForAsians](//twitter.com/search?q=%23StandforAsians&src=typeahead_click); LA's [Stand for Asians Solidarity](//facebook.com/StandForAsians), Brooklyn's [#TheyCantBurnUsAll](//facebook.com/TheyCantBurnUsAll), [Manhattan](//facebook.com/events/760346497918603) ([Feb 28](//facebook.com/lillian.bit.7/posts/10158701942445041), [Will's speech](//facebook.com/william.ham/posts/10102675324135945)), [San Mateo](//facebook.com/DionLimTV/posts/3721064037969167), [#JusticeForVicha](//twitter.com/hashtag/justiceforvicha) [#JustForVicharatanapakdee](//twitter.com/hashtag/justiceforvicharatanapakdee); [Manhattan Chinatown on Tuesday, March 21, 2021](//www.youtube.com/watch?v=sU8XHdU0pOY) by [East Side Stories](//youtube.com/channel/UCH38tPMywhg42rvv4UEBM1w); [Saturday, March 27, 2021 at 12p at Suffolk County H. Lee Dennison Building](//facebook.com/scaaab.org/posts/4347948321900323) (join them on Friday, April 30, 2021 at 6p](//facebook.com/scaaab.org/posts/4329235140438308), too)
+Too many to list, I got these before I couldn't keep up: [Thu Mar 4 9a at SF Hall of Justice, 850 Bryant St, 94103](//facebook.com/StandForAsians/posts/114596594013073) with [@StandForAsiansCA](//instagram.com/StandForAsiansCA)/[@StandForAsians](//facebook.com/StandForAsians); [AAFederation](//twitter.com/AAFederation)'s [#StandForAsians](//twitter.com/search?q=%23StandforAsians&src=typeahead_click); LA's [Stand for Asians Solidarity](//facebook.com/StandForAsians), Brooklyn's [#TheyCantBurnUsAll](//facebook.com/TheyCantBurnUsAll), [Manhattan](//facebook.com/events/760346497918603) ([Feb 28](//facebook.com/lillian.bit.7/posts/10158701942445041), [Will's speech](//facebook.com/william.ham/posts/10102675324135945)), [San Mateo](//facebook.com/DionLimTV/posts/3721064037969167), [#JusticeForVicha](//twitter.com/hashtag/justiceforvicha) [#JustForVicharatanapakdee](//twitter.com/hashtag/justiceforvicharatanapakdee); [Manhattan Chinatown on Tuesday, March 21, 2021](//y2u.be/sU8XHdU0pOY) (09:03) by [East Side Stories](//youtube.com/channel/UCH38tPMywhg42rvv4UEBM1w); [Saturday, March 27, 2021 at 12p at Suffolk County H. Lee Dennison Building](//facebook.com/scaaab.org/posts/4347948321900323) (join them on Friday, April 30, 2021 at 6p](//facebook.com/scaaab.org/posts/4329235140438308), too)
+
+Related: [scented candle](//facebook.com/erin.hollandPHD/posts/10157721717506020)
 
 ## Be Civicly Involved
 The IRS designation for traditional non-profits and community groups is 501(c)(3) and legally forbids their political involvement with campaigns or candidates but the threat is vague thus they stay intentionally mute, fearful, and avoidant to avoid being taxed. Some orgs start a related 527/501(c)(4) organization to do political advocacy, else, they'll defend their IRS tax-free designation.
@@ -223,6 +237,8 @@ Orgs: I made a [list](//twitter.com/i/lists/904070897807523840/members) to netwo
 
 More Orgs: [LAANY](//facebook.com/LAANY.org)
 
+Articles: "[Andrew Yang’s Asian American Superpower](//t.co/tHdMGbls2P)" by [Tina Nguyen](//twitter.com/tina_nguyen); 
+
 ### Advoacate, Pressure, Lobby, Influence
 Increase local resources for mental health, corrections (not mere incarceration for for-profit contractors), prosecution, law enforcement (they need public trust), local and community policing (PD's aren't only about SWAT and counterterrorism though also important), improved lawmaking process (legislation happens at all levels involving all citizenry), community participation in all the aforementioned.
 
@@ -248,14 +264,14 @@ Mags: [Chinosity](//t.co/ZvCiqSsGmH), [Cold Tea Collective](//t.co/jU8eTN0yM2), 
 ## Build solidarity through Intersectionality
 There's thousands of allied shared orgs, movements, causes, groups, and allies in so many areas, notably arts, cultural, ethnics, and social movements who've been doing related work for years, too. They might intersect more with your existing, deeper interests.
 
-Orgs: [AAWA](//facebook.com/AsianAmericanWomensAlliance), [NAPAWF](//t.co/Qpz7z469Pp); [Womankind](//facebook.com/nyawc.org), [SFAWS](//sfaws.org), [AAJA](//facebook.com/AAJAHQ), [SASE](//facebook.com/SASE), [AAPA](//aapaonline.org), [AILA](//facebook.com/AILANational), [AABNY](//facebook.com/aabany), [JACL](//t.co/RGj7cc7r2Y), [TALA](//facebook.com/1994TALA); [NAAAP](//t.co/7vQQrrVi1g) which is uncannily like [AAAPNY](//facebook.com/groups/1651303801749164); [Not In Our Town](//t.co/kAdo8wOJzk) and [Not In Our School](//t.co/SBZp7UdI0P) (Related: Youth)
+Orgs: [AAWA](//facebook.com/AsianAmericanWomensAlliance), [NAPAWF](//t.co/Qpz7z469Pp); [Womankind](//facebook.com/nyawc.org), [SFAWS](//sfaws.org), [AAJA](//facebook.com/AAJAHQ), [SASE](//facebook.com/SASE), [AAPA](//aapaonline.org), [AILA](//facebook.com/AILANational), [AABNY](//facebook.com/aabany), [JACL](//t.co/RGj7cc7r2Y), [TALA](//facebook.com/1994TALA); [NAAAP](//t.co/7vQQrrVi1g) which is uncannily like [AAAPNY](//facebook.com/groups/1651303801749164); [Not In Our Town](//t.co/kAdo8wOJzk) and [Not In Our School](//t.co/SBZp7UdI0P) (Related: [Youth](#kids-youth-preteens-teenagers))
 
 Events: [Wednesday, March 10, 2021 at 19:30 by Cheryl Leong](//facebook.com/cheryl.leong.731/posts/769539953968333)
 
-Blacks have shown up big time, but there are many discussions](//youtube.com/watch?v=jkE1WOOwTCs).
+Blacks have shown up big time, but there are many discussions](//y2u.be/jkE1WOOwTCs) (01:31:28).
 
 ### Education
-Education is inherently a social movement.
+Education (not just public, but all) is inherently a social movement.
 
 Todo: add AAPI history to curricula (very hard as every municipality and textbook deciding organ is highly fragmented), add Lunar New Year to holidays
 
