@@ -88,7 +88,7 @@ AAPI television series: [Wikipedia](//en.wikipedia.org/wiki/American_television_
 
 For casting opportunities, industry email groups are best. Barely any get reposted to [groups actively keeping up with the news](//medium.com/@richardc020/washthehate-43cb5d0de773?source=friends_link&sk=d488ff5071ef42d7c1b99034288d8421).
 
-News Specials: "[Stop the Hate: The Rise in Violence Against Asian Americans](//facebook.com/CeFaanKimTV/posts/1618634198331654)" aired on ABCNews Live on Thursday, March 4, 2021 at 8p (ET), [trailer](//y2u.be/VTH9hTderTY?t=3030) (00:15) and long [show](//y2u.be/VTH9hTderTY?t=4563) (00:45); [WaPo's "Rise in Anti-Asian Violence"](//y2u.be/VT1mDgDjJ5g?t=10); PBS's "[Asian Americans](//t.co/L4hi3AIcVD)" is 05:00:00 long but a comprehensive all-in look at our history, good and bad, all free online; Betty Yu's "[Asians Under Attack: The Bay Area Reacts](//cbsloc.al/3vLdnbD) aired March 21 at 21:00 local time; followup on ABCNews was "[Murder in Atlanta]()"; "[We Need to Talk About Anti-Asian American Hate](//t.co/iA23jxAlDW)" by [Eugene Lee Yang](//twitter.com/EugeneLeeYang); "[Building It Better Together Town Hall: Take Action Against Hate for Asian Americans](//t.co/GUJc2zUoJQ)" by [Nydia Han](//t.co/LyKHF4szvR)
+News Specials: "[Stop the Hate: The Rise in Violence Against Asian Americans](//facebook.com/CeFaanKimTV/posts/1618634198331654)" aired on ABCNews Live on Thursday, March 4, 2021 at 8p (ET), [trailer](//y2u.be/VTH9hTderTY?t=3030) (00:15) and long [show](//y2u.be/VTH9hTderTY?t=4563) (00:45); [WaPo's "Rise in Anti-Asian Violence"](//y2u.be/VT1mDgDjJ5g?t=10); PBS's "[Asian Americans](//t.co/L4hi3AIcVD)" is 05:00:00 long but a comprehensive all-in look at our history, good and bad, all free online; Betty Yu's "[Asians Under Attack: The Bay Area Reacts](//cbsloc.al/3vLdnbD) aired March 21 at 21:00 local time; followup on ABCNews was "[Murder in Atlanta]()"; "[We Need to Talk About Anti-Asian American Hate](//t.co/iA23jxAlDW)" by [Eugene Lee Yang](//twitter.com/EugeneLeeYang); "[Building It Better Together Town Hall: Take Action Against Hate for Asian Americans](//t.co/GUJc2zUoJQ)" by [Nydia Han](//t.co/LyKHF4szvR); [ABC Network tout](//twitter.com/ABCNetwork/status/1382755608919564292)
 
 Articles: So many. Probably better left for some news roll in another system. Nonetheless, for now: "[A History Of Anti-Asian Racism](//t.co/cbM4tCbVYS)" by [Sam Sanders](//t.co/SclbzwJQzT); "[The long Western legacy of violence against Asian Americans](//t.co/hpkT9L4cCs)" by [Jane C. Hu](//t.co/usrHKwJwbW); "[We Need to Put a Name to This Violence](//t.co/78ERTCLJYh)" by [Jay Caspian King](//twitter.com/jaycaspiankang); "[The most effective way to fight back against anti-Asian hate](//t.co/R7pYE0Ym2m)" by [Pawan Dhingra](//t.co/OmqvBC4TI8); "[It was a Banner Year for Asian Representation. Now What?](//t.co/dAPichP8k6)" by [Connie Wang](//t.co/94EZLlhrom); "[Catching Up with NYC's 'Vaccine Daddy'](//t.co/eiyyF3BU3q)" by [Sangeeta Sinch-Kurtz](//t.co/60HrnR65vF); "[Why there’s an ‘impulse’ to erase the experience of Asian Americans](//t.co/snTVQqXxSx)" by [Stephanie Sy](//twitter.com/thestephsy), [Kim Tran](//t.co/MeMQa437rM)
 
@@ -112,6 +112,8 @@ AAPI YouTubers are many with an [illustrious history](//coldteacollective.com/a-
 Channels (exclude mainstream outlets): [Asian Theory](//youtube.com/c/TheAsianTheory/about)
 
 Specially good: [6 Asian Women Have Been Murdered](//y2u.be/JG0UdCuoCgM) (03:36) ([Facebook](//facebook.com/100044407870447/videos/156262276352249)) by [Anna Akana](//twitter.com/annaakana)
+
+Too many agencies are run strongly by dominant white dudes with big egos, big clients (just one keeps all the bills paid), and big no-cares of to bullying others, so while non-US, agencies like [Rice Bowl Studio](//bit.ly/postgradarticle) are more worth your agency spend.
 
 ### Literature: Bookstores
 There're just a few: [Asian American Curriculum Project, San Mateo, CA](//t.co/XyfI4dimws); [Eastwind, Berekely, CA](//t.co/QZnQJxd9Ti), [Philippines Expressions, San Pedro, CA](//yelp.com/biz/philippine-expressions-bookshop-san-pedro).
@@ -188,12 +190,12 @@ Related: [scented candle](//facebook.com/erin.hollandPHD/posts/10157721717506020
 ## Be Civicly Involved
 The IRS designation for traditional non-profits and community groups is 501(c)(3) and legally forbids their political involvement with campaigns or candidates but the threat is vague thus they stay intentionally mute, fearful, and avoidant to avoid being taxed. Some orgs start a related 527/501(c)(4) organization to do political advocacy, else, they'll defend their IRS tax-free designation.
 
-Orgs: [CPA NY](//facebook.com/cpa.newyork), [CCCNY](//facebook.com/cccny1932), [AAFE](//facebook.com/aafe1974), [CSWA](//facebook.com/ChineseStaffWorkersAssociation), [CBANYC](//facebook.com/ccbanyc), [CMP NY](//facebook.com/cmpnewyork), [NY Chinese School](//facebook.com/officialNYCS), [CAVF](//facebook.com/cavotersfederation), [CAAAV](//facebook.com/caaavnyc), [CAASF](//t.co/9pcuqJ3LpK); [ThinkChinatown](//facebook.com/ThinkChinatown), [CAPACD](//t.co/v62SE4f4lw), [CPC NYC](//facebook.com/CPC.NYC), [CWG NYC](//facebook.com/cwg.nyc), [CACF](//facebook.com/Chinese-American-Citizens-Alliance-131094956935672) ([Houston](//facebook.com/Chinese-American-Citizens-Alliance-Houston-243187775880385), [SGV](//facebook.com/Chinese-American-Citizens-Alliance-Greater-San-Gabriel-Valley-Lodge-2003875516499175), [SA](//facebook.com/SATX8888), [Boston](//facebook.com/CACABoston), [ABQ](//facebook.com/Chinese-American-Citizens-Alliance-ABQ-Lodge-213272682038134), [SEA](//facebook.com/CACASeattle), [PDX](//facebook.com/cacaportland), [LA](//facebook.com/cacalosangeles), [LV](//facebook.com/Chinese-American-Citizens-Alliance-Las-Vegas-NV-Lodge-1576474745949617), [Chicago](//facebook.com/CACAChicago), [Oakland](//facebook.com/Chinese-American-Citizens-Alliance-Oakland-Lodge-1626853300887300), [PHX](//facebook.com/cacaphx), [NYC](//facebook.com/CACFnyc); [UCA Brooklyn](//facebook.com/United-Chinese-Association-of-Brooklyn-126552224721572); [Charles B. Wang CHC](//facebook.com/cbwcommunityhealthcenter); [KCS NY](//facebook.com/KoreanCommunityServicesNY); [CAIPA NY](//facebook.com/CAIPAnewyork); [ACDC](//t.co/FnTXbitvX4); [CYI NYC](//facebook.com/cyinyc), [HCS](//facebook.com/HomecrestServices), [Chinatown Mural Project](//facebook.com/chinatownmuralproject), [Chinatown Core Block](//facebook.com/The-Chinatown-Core-Block-Association-523401904781129), [NYC Residents Alliance](//facebook.com/nycresidentsalliance), [UA3](//facebook.com/UA3now); [AFSS] [Austin](instagram.com/afssaustin)
+Orgs: [CPA NY](//facebook.com/cpa.newyork), [CCCNY](//facebook.com/cccny1932), [AAFE](//facebook.com/aafe1974), [CSWA](//facebook.com/ChineseStaffWorkersAssociation), [CBANYC](//facebook.com/ccbanyc), [CMP NY](//facebook.com/cmpnewyork), [NY Chinese School](//facebook.com/officialNYCS), [CAVF](//facebook.com/cavotersfederation), [CAAAV](//facebook.com/caaavnyc), [CAASF](//t.co/9pcuqJ3LpK); [ThinkChinatown](//facebook.com/ThinkChinatown), [CAPACD](//t.co/v62SE4f4lw), [CPC NYC](//t.co/VYa48Qc71A), [CWG NYC](//facebook.com/cwg.nyc), [CACF](//facebook.com/Chinese-American-Citizens-Alliance-131094956935672) ([Houston](//facebook.com/Chinese-American-Citizens-Alliance-Houston-243187775880385), [SGV](//facebook.com/Chinese-American-Citizens-Alliance-Greater-San-Gabriel-Valley-Lodge-2003875516499175), [SA](//facebook.com/SATX8888), [Boston](//facebook.com/CACABoston), [ABQ](//facebook.com/Chinese-American-Citizens-Alliance-ABQ-Lodge-213272682038134), [SEA](//facebook.com/CACASeattle), [PDX](//facebook.com/cacaportland), [LA](//facebook.com/cacalosangeles), [LV](//facebook.com/Chinese-American-Citizens-Alliance-Las-Vegas-NV-Lodge-1576474745949617), [Chicago](//facebook.com/CACAChicago), [Oakland](//facebook.com/Chinese-American-Citizens-Alliance-Oakland-Lodge-1626853300887300), [PHX](//facebook.com/cacaphx), [NYC](//facebook.com/CACFnyc); [UCA Brooklyn](//facebook.com/United-Chinese-Association-of-Brooklyn-126552224721572); [CPACS](//t.co/l0YkWgdAxJ) (ATL); [Charles B. Wang CHC](//t.co/R0bOXWpcbS) not same as the nearby similarly named [Charles B Wang Ctr](//t.co/0x1ZKBRCI3); [KCS NY](//t.co/k0wx3OFhtO); [KCDSC PHL](//t.co/NVhPPCpL0t) [CAIPA NY](//t.co/zQm5nbuyTt); [ACDC](//t.co/FnTXbitvX4) (NV); [CYI NYC](//t.co/Ny71ohY0v3), [HCS](//facebook.com/HomecrestServices), [Chinatown Mural Project](//facebook.com/chinatownmuralproject), [Chinatown Core Block](//facebook.com/The-Chinatown-Core-Block-Association-523401904781129), [NYC Residents Alliance](//facebook.com/nycresidentsalliance), [UA3](//facebook.com/UA3now); [AFSS] [Austin](instagram.com/afssaustin)
 
-### Civic Politics
-These are ones whose goals are nonpartisan political involvement.
+### Civic, Social, Commmunity, Non-Profit
+Their goals are political but non-partisan.
 
-Orgs: [APIAVote](//facebook.com/apiavote), [APA Voice](//facebook.com/apavoicenewyork)
+Orgs: [APIAVote](//facebook.com/apiavote), [APA Voice](//t.co/kWBjNARkvo)
 
 ### Kids, Youth, Pre-Teens, Teenagers
 They're our future, more involved, more assimilated (i.e. familiar with the enemy, its tactics, relevance), and blessed with more time.
@@ -202,6 +204,8 @@ Orgs: [AAYLC](//facebook.com/AAYLC-Asian-American-Youth-Leadership-Conference-10
 
 ### Collegiate, YP (Young Professionals)
 Orgs: [AHN](//twitter.com/asianhustlentwk) by [Maggie Chui](//twitter.com/maggchui); TAP [NYC](//facebook.com/tapny), [DC](//facebook.com/TaiwaneseAmericanProfessionalsDC), [SF](//facebook.com/TAPSF.CA), [SD](//facebook.com/tapsandiego), [TACL](//facebook.com/tacl.lyf) (disambiguated from the [adult same-name one](//facebook.com/tacl.org)), [SEA](//facebook.com/TAPSinSeattle), [Chicago](//facebook.com/TapChicago), [ATL](//facebook.com/tap.atl), [HI](//facebook.com/taphonolulu), [Detroit](//facebook.com/TAPDetroit1), [Madison](//facebook.com/MADTAP), [PDX](//facebook.com/Taiwanese-American-Professionals-Portland-Chapter-107930750843234), [ATX](//facebook.com/tapatx); [TANG](//facebook.com/TaiwaneseAmericanNextGeneration); [Alike Dating](//t.co/CpmhJMSu8H)
+
+Medical: [AMA warning](//bit.ly/3c8pfdt)
 
 ## Inspirational, Motivational
 
@@ -231,13 +235,13 @@ Speak about issues (not politics) at workplaces as much as you can. Hold to task
 Orgs: [GlassDoor](//glassdoor.com/Reviews/index.htm)
 
 ## Politics, Public Officials, Electeds
-It's [false that AAPI are politically unvinvolved](//twitter.com/xiranjayzhao/status/1285368446033657856).
+It's [false that AAPI are politically uninvolved](//twitter.com/xiranjayzhao/status/1285368446033657856).
 
-Orgs: I made a [list](//twitter.com/i/lists/904070897807523840/members) to network, focus power. TLDR: see [Yappie](//t.co/2LzYOsloxc)
+Orgs: [list](//twitter.com/i/lists/904070897807523840/members); [Yappie](//t.co/2LzYOsloxc)
 
 More Orgs: [LAANY](//facebook.com/LAANY.org)
 
-Articles: "[Andrew Yang’s Asian American Superpower](//t.co/tHdMGbls2P)" by [Tina Nguyen](//twitter.com/tina_nguyen); 
+Articles: "[Andrew Yang’s Asian American Superpower](//t.co/tHdMGbls2P)" by [Tina Nguyen](//twitter.com/tina_nguyen) 
 
 ### Advoacate, Pressure, Lobby, Influence
 Increase local resources for mental health, corrections (not mere incarceration for for-profit contractors), prosecution, law enforcement (they need public trust), local and community policing (PD's aren't only about SWAT and counterterrorism though also important), improved lawmaking process (legislation happens at all levels involving all citizenry), community participation in all the aforementioned.
@@ -259,7 +263,7 @@ As for the vast history of hating AAPI, [Densho Project](//t.co/ikb4bSWs2x) cove
 
 Media: [asians_rise_up](//instagram.com/asians_rise_up), [asiansadvocate](//instagram.com/asiansadvocate), [asianswithattitudes](//instagram.com/asianswithattitudes), [asiansgetactive](//instagram.com/asiansgetactive), [asian_rise](//instagram.com/asian_rise), [asiansstandup](//instagram.com/asiansstandup), [asian_american_empowerment](//instagram.com/asian_american_empowerment), [asianinamerikkka](//instagram.com/asianinamerikkka)
 
-Mags: [Chinosity](//t.co/ZvCiqSsGmH), [Cold Tea Collective](//t.co/jU8eTN0yM2), [Hyphen Magazine](//t.co/s9cPnBsR5S)
+Mags: [Chinosity](//t.co/ZvCiqSsGmH), [Cold Tea Collective](//t.co/jU8eTN0yM2), [Hyphen Magazine](//t.co/s9cPnBsR5S); [chopblock](//t.co/b7tbAzlN8d) successor of '[Yolk](//en.wikipedia.org/wiki/Yolk_magazine)' (not to be confused with the non-US magazine of the same name, '[Yolk](//twitter.com/yolkmagau)')
 
 ## Build solidarity through Intersectionality
 There's thousands of allied shared orgs, movements, causes, groups, and allies in so many areas, notably arts, cultural, ethnics, and social movements who've been doing related work for years, too. They might intersect more with your existing, deeper interests.
@@ -282,3 +286,4 @@ Professors: [USC panel](//t.co/LdqbQjlwh9) by [so many](//twitter.com/USCDornsif
 ## Credits, Sources, Reference, Meta
 1. "[Asian American Community Rallies Online](//medium.com/the-shadow/asian-american-community-rallies-online-to-address-hate-crimes-and-violent-attacks-37924300e45a?readmore=1&source=---------0----------------------------)"
 1. [Bustle](//bustle.com/wellness/how-to-support-asian-american-communities-racist-attacks)
+1. more by Googling "[site:bit.ly Xenophobia and racism covid](//www.google.com/search?q=site%3Abit.ly+Xenophobia+and+racism+covid&safe=active&client=safari&rls=en&sxsrf=ALeKk00BLRj-dw0tmf3j3hbKHJDvJODI5A%3A1619019653141&ei=hUeAYNqACOio5NoPntaQmAk&oq=site%3Abit.ly+Xenophobia+and+racism+covid&gs_lcp=Cgdnd3Mtd2l6EANQtC5Y40BgvkJoAXAAeACAAT6IAZ4CkgEBNZgBAKABAaoBB2d3cy13aXrAAQE&sclient=gws-wiz&ved=0ahUKEwia17ya1o_wAhVoFFkFHR4rBJMQ4dUDCA0&uact=5)"

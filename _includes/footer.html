@@ -1,14 +1,19 @@
 <h2>Daily #StopAAPIHate</h2>
 <ul>
 {% for post in site.posts %}
-  {% if post.title == 'Daily' %}
-  <li><a href="{{ post.url }}">{{ post.title }} - {{ post.date | date: "%B %e, %Y" }}</a></li>          
+  {% if post.title contains 'Daily' %}
+  <li><a href="{{ post.url }}">{{ post.date | date: "%B %e, %Y" }}</a></li>          
   {% endif %}
 {% endfor %}
 </ul>
 
-<h2>Site Map</h2>
+<h2>More</h2>
 <ul>
-  <li><a href="about">About</a></li>
-  <li><a href="faq">FAQ/Q&amp;A</a></li>
+{% for post in site.posts %}
+  {% unless post.title contains 'Daily' %}
+  <li><a href="{{ post.url }}">{{ post.title }}</a></li>          
+  {% endunless %}
+{% endfor %}
 </ul>
+
+Page updated daily, last on {{ "now" | date: "%b %d, %Y" }}
