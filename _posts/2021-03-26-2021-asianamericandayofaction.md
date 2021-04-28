@@ -1,5 +1,5 @@
 ---
-layout: daily 
+layout: main
 title: March 26 Day of Action
 ---
 
