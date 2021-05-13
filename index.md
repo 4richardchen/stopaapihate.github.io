@@ -7,7 +7,9 @@ title: StopAAPIHate.us
 Read a [simpler version of this page](//t.co/f8iWLI8kuU) ([Tweet](//twitter.com/joeyng/status/1362922187611537408)); [summary](//facebook.com/invisibleasians/posts/103494218467377); [Facebook singular post](//facebook.com/photo/?fbid=10160909652963135&set=a.10150625334458135); [link list](//t.co/UiClM97MOj) ([alt](//bit.ly/aapilove)); an [explanation](//nextshark.com/anti-asian-assaults-racism-may-lee); or below.
 
 ## Be, Stay Informed
-[Track the hate](//twitter.com/RachelRoh) namely in [social media](//stopaapihate.org/reportsreleases) and groups. 
+Read [a list](//t.co/ZjhkbXa6OG) or a [report](//t.co/dGcdasjJeZ).
+
+Articles: "[The Anti-Asian Hate Crime Capital of North America is Vancouver](//t.co/QUp5WLR6sj)"
 
 ### Train your Algorithms
 All media profits from tracking user engagement to sell advertising access. Exploit it for your benefit. It's not "AI". It's advertising data haul.
@@ -169,7 +171,7 @@ Orgs: [TAAF](//t.co/VZUPbJBWsg) (immense visibility, power, and principled deplo
 
 Bad Orgs: [Leaders Forum](//t.co/Cnx3iXSGig) (opaque leadership, no transparency)
 
-Articles: "[Watch: Ad Age Town Hall on Giving a Voice to the Asian Community](//t.co/gOPhDiNofL)" and [video](//y2u.be/wXG4g_4UhCM)
+Articles: "[Watch: Ad Age Town Hall on Giving a Voice to the Asian Community](//t.co/gOPhDiNofL)" and [video](//y2u.be/wXG4g_4UhCM); "['I wish I spoke up sooner': 12 Asian American leaders talk career, identity](//t.co/WP3ICVxsut)"
 
 Yelp's [Asian owned business]() (akin to [black-owned businesses](//blog.yelp.com/2020/06/yelp-teams-up-with-my-black-receipt-to-support-black-owned-businesses). New from [ATL OTP](//blog.yelp.com/2020/06/meet-the-asian-american-pacific-islander-business-owners-of-otp), [SGV](//blog.yelp.com/2020/05/celebrating-aapi-business-owners) inform [my list](). Warning is that Asian restaurants are too often not Asian _owned_, I made [a list]() of those. Note we must keep a watch that folks like [Arielle Haspel](//t.co/rNKXotRvM7) never again disrespect Asian cuisine.
 
@@ -221,7 +223,7 @@ Analysis: Too little about adoptees (Chinese, Korean, central Asian all have 100
 ### Collegiate, YP (Young Professionals)
 Orgs: [AHN](//twitter.com/asianhustlentwk) by [Maggie Chui](//twitter.com/maggchui); TAP [NYC](//facebook.com/tapny), [DC](//facebook.com/TaiwaneseAmericanProfessionalsDC), [SF](//facebook.com/TAPSF.CA), [SD](//facebook.com/tapsandiego), [TACL](//facebook.com/tacl.lyf) (disambiguated from the [adult same-name one](//facebook.com/tacl.org)), [SEA](//facebook.com/TAPSinSeattle), [Chicago](//facebook.com/TapChicago), [ATL](//facebook.com/tap.atl), [HI](//facebook.com/taphonolulu), [Detroit](//facebook.com/TAPDetroit1), [Madison](//facebook.com/MADTAP), [PDX](//facebook.com/Taiwanese-American-Professionals-Portland-Chapter-107930750843234), [ATX](//facebook.com/tapatx); [TANG](//facebook.com/TaiwaneseAmericanNextGeneration); [Alike Dating](//t.co/CpmhJMSu8H)
 
-Medical: [AMA warning](//bit.ly/3c8pfdt); [Dr. Jenny Wang](//t.co/WmlrILdq6d) for AAPI women specific therapy in TX, NC; [APISAA Therapist Directory](//t.co/XWoL0vbpRc)
+Medical: [AMA warning](//bit.ly/3c8pfdt); [Dr. Jenny Wang](//t.co/WmlrILdq6d) for AAPI women specific therapy in TX, NC; [APISAA Therapist Directory](//t.co/XWoL0vbpRc); [Whitecoats Against Asian Hate](//instagram.com/whitecoats.against.asianhate) ([interview](//y2u.be/AlJxw5-qZD8))
 
 ## Inspirational, Motivational
 
