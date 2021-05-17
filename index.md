@@ -9,7 +9,7 @@ Read a [simpler version of this page](//t.co/f8iWLI8kuU) ([Tweet](//twitter.com/
 ## Be, Stay Informed
 Read [a list](//t.co/ZjhkbXa6OG) or a [report](//t.co/dGcdasjJeZ).
 
-Articles: "[The Anti-Asian Hate Crime Capital of North America is Vancouver](//t.co/QUp5WLR6sj)"
+Articles: "[The Anti-Asian Hate Crime Capital of North America is Vancouver](//t.co/QUp5WLR6sj)" and [why](//t.co/GXcKc6sSr8)
 
 ### Train your Algorithms
 All media profits from tracking user engagement to sell advertising access. Exploit it for your benefit. It's not "AI". It's advertising data haul.
@@ -41,6 +41,8 @@ Twitter: see [lists](//twitter.com/richardc020/lists)
 
 Instagram: see [Storytell](#storytell)
 
+Telegram: [#STOP ASIAN HATE - CH ONLINE SILEN PROTEST](//t.me/stopasianhate)
+
 Analysis: All media orgs, social or chat apps or mainstream or whatever, use algorithms to max data haul. As such, they may anti-Asian American hate news. Media use (app, web, messengers, anything) tracks user engagement (not just clicks, but lingers, scrolls, edits, etc.) for big data, sales (of data access not the data itself which is more useful kept native), and advertiser dollars.
 
 ## Report
@@ -48,15 +50,13 @@ Privately: [StopAAPIHate.org](//t.co/tjHqwy28HY); see [Journalist](#journalist)
 
 In Canada: [Fight COVID Racism](//t.co/u116DoPExF) ([Tweet](//twitter.com/CdnHumanRights/status/1266426222663421956)) (non-US but parallel)
 
-Publicly: [Wikipedia's a long list of such attacks](//t.co/ZjhkbXa6OG) (Wikipedia requires citations for all content) and review [its history](//en.wikipedia.org/w/index.php?title=//en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_COVID-19_pandemic#New_YorkXenophobia_and_racism_related_to_the_COVID-19_pandemic&action=history) for vandals (i.e. [edits erasing us](//en.wikipedia.org/w/index.php?title=Xenophobia_and_racism_related_to_the_COVID-19_pandemic&diff=1020229957&oldid=1020207013&diffmode=source)).	
-
+Publicly: [Wikipedia's a long list of such attacks](//t.co/ZjhkbXa6OG) (Wikipedia requires citations for all content) and review [its history](//en.wikipedia.org/w/index.php?title=//en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_COVID-19_pandemic#New_YorkXenophobia_and_racism_related_to_the_COVID-19_pandemic&action=history) for vandals (i.e. [edits erasing us](//en.wikipedia.org/w/index.php?title=Xenophobia_and_racism_related_to_the_COVID-19_pandemic&diff=1020229957&oldid=1020207013&diffmode=source)); to [CNN's ongoing reporting in workplace incidents](//t.co/eJceiRU5KC) ([Tweet](//twitter.com/CNN/status/1377758224716328963))
 
 [#StopAsianHate](//twitter.com/hashtag/StopAsianHate); [#StopAAPIHate](//twitter.com/hashtag/StopAAPIHate); [#HateIsAVirus](//twitter.com/hashtag/HateIsAVirus) by [Hate Is a Virus](//t.co/UKdnKDabMx); [#WashTheHate](//t.co/k41J1aMvE2); [#StandWithAsianAmericans](//t.co/77fPOgFgUp) ([Facebook](//facebook.com/story.php?story_fbid=10106045722006433&id=205370), [Twitter](//twitter.com/davelu/status/1377276256513785859)); 
 ## Help victims
 ### Patrol, Guard, Watch, Protect, Defend, Intervene
 
 Help the victim(s) in real time. Train to avoid shock, delay, silence. It's not illegal to use force in self-defense. Train in [firearms](//t.co/DgmItFWXAj), weapons (umbrellas, pepper spray, bear spray, belts, hammers, etc.), martial arts, [self-defense](//youtube.com/watch?v=woL9f-R-OTs&list=PLewDws3GRrGgnx6bneWAXJvm9K3mJ98TS&index=1). 
-
 Orgs: [Sentinels](//facebook.com/groups/247390043497083): [Los Angeles Chinatown](//facebook.com/groups/247390043497083/user/100064190760567); [United Peace Collaborative](//t.co/ofto5i2IXe) (SF Chinatown; formerly United Peace Corps); [East Bay Toishan Association](//t.co/PzTu5vyvJ3); [Guardian Angels](//t.co/OVuObeOShI); [Oakland Compassion Project](//t.co/tdJNnuXWDu); [Hollaback!](//t.co/zKm2xhCZuw) ([#DropEverythingForPeace](//twitter.com/hashtag/DropEverythingForPeace)) or [Asians Are Strong](//instagram.com/p/COV6gg2jXvi), [IMPACT](//t.co/QeYQB8vXdX), [Smart Defense](//t.co/0QUQDkGQKk); [CAENY](//t.co/hCP2hivM4X), [API Healer Network](//t.co/Ca0cv3pfEZ), [City of New York](//t.co/tnBhgEAyly), [Chicago CMA](//t.co/eySCi65xby), [Project Lotus](//projectlotus.carrd.co), local patrols and [neighbor watches](//t.co/cNciRQp0Gj), [NYPD volunteering](//t.co/DD0jsfXSFz), [asiangunsociety](//instagram.com/asiangunsociety)
 
 ### Report Crimes
@@ -83,7 +83,7 @@ Media review:
 ## Storytell
 Telling your story empowers you, the silent, and our community (i.e. [#metoo](//twitter.com/hashtag/metoo)).
 
-Orgs: [Biasian Project](//t.co/Y1PBfw3Fei); [LUNAR](//t.co/u9zd2GVq7B); [InTheVisible](//t.co/DUZfWFc1UA) by Lucia Tran; [East Side Stories](//eastsidestories.org/mission-statement) with [Yuena Li](//youtube.com/user/SimplyYue); [AsiansBelong](//t.co/wNrH4ARf6h) (doesn't link to their [Twitter](//twitter.com/AsiansBelong)), [Hello Prosper](//t.co/G6ix0C13K8); [AAWW](//t.co/VvnNO9zMmZ); [Invisible Asians](//t.co/9q3KHfaQ3z) ([infographic](//facebook.com/invisibleasians/posts/103494218467377)); [Dear Asian Americans](//instagram.com/dearasianamericans) by [Jerry Won](//t.co/uTmDmBcPxk) and their [AsianAm Club](//t.co/23ouFGAnxx) on ClubHouse, [iamasianamerican](//instagram.com/iam_asianamerican); [AzN Zoomer](//instagram.com/asianzoomer); [Very Asian Media](//t.co/xDkEBbVR9M); [segregasian](//t.co/rB9tMuj3pw) (infographics); [asiansneverdie](//instagram.com/asiansneverdie), [Asians Are Strong](//asiansarestrong.org); [villyvillyvonka](instagram.com/villyvillyvonka); [fareastsociety8](instagram.com/fareastsociety8); [rooftop_asians_92](//instagram.com/rooftop_asians_92) ([what the reference means](//huffpost.com/entry/roof-koreans-meme-know-real-story_n_5ee110a1c5b6d5bafa5604f3)); [subtle asian traits](//facebook.com/groups/1343933772408499), [ANAF](//facebook.com/AsiansNowAsiansForever), [aapinarratives](//instagram.com/aapinarratives), [asiantravellersadvocate](//instagram.com/asiantravellersadvocate); [streetvoicesto](//instagram.com/streetvoicesto) (non-US but excellent); [18millionrising](//t.co/l7Ru73XKzE) (used to be more stories, now veering towards politics)
+Orgs: [Biasian Project](//t.co/Y1PBfw3Fei); [LUNAR](//t.co/u9zd2GVq7B); [InTheVisible](//t.co/DUZfWFc1UA) by Lucia Tran; [East Side Stories](//eastsidestories.org/mission-statement) with [Yuena Li](//youtube.com/user/SimplyYue); [AsiansBelong](//t.co/wNrH4ARf6h) (doesn't link to their [Twitter](//twitter.com/AsiansBelong)), [Hello Prosper](//t.co/G6ix0C13K8); [AAWW](//t.co/VvnNO9zMmZ); [Invisible Asians](//t.co/9q3KHfaQ3z) ([infographic](//facebook.com/invisibleasians/posts/103494218467377)); [Dear Asian Americans](//instagram.com/dearasianamericans) by [Jerry Won](//t.co/uTmDmBcPxk) and their [AsianAm Club](//t.co/23ouFGAnxx); [iamasianamerican](//instagram.com/iam_asianamerican); [AzN Zoomer](//instagram.com/asianzoomer); [Very Asian Media](//t.co/xDkEBbVR9M); [segregasian](//t.co/rB9tMuj3pw) (infographics); [asiansneverdie](//instagram.com/asiansneverdie), [Asians Are Strong](//asiansarestrong.org); [villyvillyvonka](instagram.com/villyvillyvonka); [fareastsociety8](instagram.com/fareastsociety8); [rooftop_asians_92](//instagram.com/rooftop_asians_92) ([what the reference means](//huffpost.com/entry/roof-koreans-meme-know-real-story_n_5ee110a1c5b6d5bafa5604f3)); [subtle asian traits](//facebook.com/groups/1343933772408499), [ANAF](//facebook.com/AsiansNowAsiansForever), [aapinarratives](//instagram.com/aapinarratives), [asiantravellersadvocate](//instagram.com/asiantravellersadvocate); [streetvoicesto](//instagram.com/streetvoicesto) (non-US but excellent); [18millionrising](//t.co/l7Ru73XKzE) (used to be more stories, now veering towards politics)
 
 Blogs (not vlogs, not those whose primary media channel isn't blogging): [Mr and Mrs Louis](//facebook.com/groups/1450447971654849/user/105451321663997)
 
@@ -107,7 +107,7 @@ News Specials: "[Stop the Hate: The Rise in Violence Against Asian Americans](//
 Journalism: 
 "[A History Of Anti-Asian Racism](//t.co/cbM4tCbVYS)" by [Sam Sanders](//t.co/SclbzwJQzT); "[The long Western legacy of violence against Asian Americans](//t.co/hpkT9L4cCs)" by [Jane C. Hu](//t.co/usrHKwJwbW); "[We Need to Put a Name to This Violence](//t.co/78ERTCLJYh)" by [Jay Caspian King](//twitter.com/jaycaspiankang); "[The most effective way to fight back against anti-Asian hate](//t.co/R7pYE0Ym2m)" by [Pawan Dhingra](//t.co/OmqvBC4TI8); "[It was a Banner Year for Asian Representation. Now What?](//t.co/dAPichP8k6)" by [Connie Wang](//t.co/94EZLlhrom); "[Catching Up with NYC's 'Vaccine Daddy'](//t.co/eiyyF3BU3q)" by [Sangeeta Sinch-Kurtz](//t.co/60HrnR65vF); "[Why there’s an ‘impulse’ to erase the experience of Asian Americans](//t.co/snTVQqXxSx)" by [Stephanie Sy](//twitter.com/thestephsy), [Kim Tran](//t.co/MeMQa437rM)
 
-Entertainment News: [Ronny Chieng joins "Young Rock"](//facebook.com/ronnychiengpage/posts/276142187215801); Margaret Cho speaks [at public rallies](//t.co/Th8HNLASnJ) and [online](//facebook.com/officialmargaretcho/videos/10151626537049978); [차(Cha), ashort film](//seedandspark.com/fund/chashortfilm#story); "[Lucy Liu Swears By Acupuncture, A Vegetarian Diet, And SoulCycle To Feel Her Best](//t.co/ddvGd1KzZh)" by [Helen Jung](//helin-jung.squarespace.com)
+Entertainment News: [Ronny Chieng joins "Young Rock"](//facebook.com/ronnychiengpage/posts/276142187215801); Margaret Cho at [rallies](//t.co/Th8HNLASnJ) and [online](//facebook.com/officialmargaretcho/videos/10151626537049978); [차(Ch)](//seedandspark.com/fund/chashortfilm#story); "[Lucy Liu Swears By Acupuncture, A Vegetarian Diet, And SoulCycle To Feel Her Best](//t.co/ddvGd1KzZh)" by [Helin Jung](//helin-jung.squarespace.com)
 
 Fine Arts: [Clarion Alley Mural](//gofundme.com/f/antiasian-racism-art-mural-in-clarion-alley)
 
@@ -117,7 +117,7 @@ Performing (Drama, Theatrical, Operatic, Stage): [AAAA](//t.co/KUaHIXPajn)i (doe
 
 Orgs: [CAPE](//t.co/TFxGdzfhLa), [Gold House](//t.co/v5QwqaBFVw)'s [#GoldOpen](//twitter.com/hasthag/GoldOpen), [Asians in LA](//facebook.com/groups/asiansinla), [RepresentASIAN](//facebook.com/representasianproject); [CAAM](//t.co/HNBAxqsZZ4); [FilAm ARTS](//t.co/lGJeuP9Kqv); [Asian Boss](//t.co/JNoskV67KG); [Start with 8 Hollywood](//t.co/tL4WtIo3Hc) by [Thuc Nguyen](//t.co/JYAwqs4CKV)
 
-Actors: Most are outspoken, notably: [George Takei](//t.co/FESrB1JExy) (["It's really frightening"](/y2u.be/b-cgRyNXhX4)); [Daniel Dae Kim](//twitter.com/danieldaekim) and [Daniel Wu](//twitter.com/danielwuyanzu); [Olivia Munn](//twitter.com/oliviamunn)
+Actors: Most are outspoken, notably: [George Takei](//t.co/FESrB1JExy) (["It's really frightening"](//y2u.be/b-cgRyNXhX4)); [Daniel Dae Kim](//twitter.com/danieldaekim) and [Daniel Wu](//twitter.com/danielwuyanzu); [Olivia Munn](//twitter.com/oliviamunn)
 
 Documentaries: _[And Then They Came](//t.co/EXIFv5k0pk)_; _[Southern AAPI](//t.co/GPgOzywPZq)_; _[Far East Deep South](//t.co/CDCt5n2VFi)_; _[Conscience](//t.co/KGbppTfnxI)_ (doesn't link to [their Twitter](//twitter.com/ConscienceDVD)); "[Who Killed Vincent Chin?](//t.co/fI68OxspfN)" by [Renee Tajima-Peña](//t.co/NqSkpgprTJ)
 
@@ -143,7 +143,7 @@ Org: [BiCultural Mama](//t.co/cEXv6hQFRy); [Pragmatic Mom](//t.co/Hp4o00uI9q) (n
 Articles: "[Your Asian Friends Are Not Okay](//t.co/nIsT3Ql2Yi)" ([Tweet](//twitter.com/ScaryMommy/status/1377684947952095233)) by [Virginia Duan / Mandarin Mama](//t.co/OWRkDUxNeF)
 
 ### Athletics
-Athletes: [Julie Chu](//twitter.com/juliechu13); [more](//twitter.com/SimonTheTam/status/1361742934060773376)
+Athletes: [Julie Chu](//twitter.com/juliechu13); [more](//twitter.com/SimonTheTam/status/1361742934060773376); [Tiffany Joh](//twitter.com/tiffjoh); [Jeehae Lee](//twitter.com/jeehaeda)
 
 Articles: "Jeremy Lin: [Despite Anger After Atlanta, There's Hope](//t.co/KBNEbbaYFl)"; "[Olympic gold medalist Chloe Kim shares her experiences with anti-Asian hate](//t.co/6MrHiqoZFY)"; [Kareem Abdul-Jabbar: Hollywood Must Do More to Combat Asian Stereotypes](//t.co/y2BiyP89mb); [Dwyane Wade](//twitter.com/NBAonTNT/status/1377859857705959427)
 
@@ -158,7 +158,7 @@ Related: [Performing (Dance) Arts](#represent-in-media)
 [more](//t.co/cTOZ7tHBVd)
 
 ### Military, Veterans, National Defense and Intelligence
-Orgs: [Lt. Kimlau Post 1291](//facebook.com/LtKimlauPost1291); [more](//instagram.com/ddooonnnn)
+Orgs: [FilVetsRep](//t.co/FhzjftZ9mu); [Lt. Kimlau Post 1291](//facebook.com/LtKimlauPost1291); [more](//instagram.com/ddooonnnn)
 
 Analysis: Filipinos in the US military have a major, long affiliation then and now. See a [salute](//y2u.be/pLq_07REniY) (03:32).
 
@@ -187,7 +187,7 @@ Get “language justice” and in-language access at all levels. Volunteer your 
 ### Disaggregate Data
 Because not breaking out Asian data leads to the model minority myth as if we're all the richest, most white adjacent, harmless, docile, obedient worker bees. [#NotYourModelMinority](//twitter.com/hashtag/NotYourModelMinority)
 
-Orgs: [AAPIData](//t.co/UcKelpUGIQ)
+Orgs: [AAPIData](//t.co/UcKelpUGIQ); [LAAUNCH](//t.co/niNyv39YCm) ([coverage](//cbsloc.al/3u1boOl))
 
 ## Raise Awareness
 Many in our own community and nearly all outside of our news echo chambers do not know. Tell them. Social media is the key. One-on-one even better. In person even better for better communication. Don't preach to the choir. Reach those outside of self-selecting environments like those listed here.
@@ -206,7 +206,7 @@ Related: [scented candle](//facebook.com/erin.hollandPHD/posts/10157721717506020
 ## Be Civicly Involved
 The IRS designation for traditional non-profits and community groups is 501(c)(3) and legally forbids their political involvement with campaigns or candidates but the threat is vague thus they stay intentionally mute, fearful, and avoidant to avoid being taxed. Some orgs start a related 527/501(c)(4) organization to do political advocacy, else, they'll defend their IRS tax-free designation.
 
-Orgs: [APICAN](//t.co/0aRVwMrDsc) (MA); [CPA NY](//facebook.com/cpa.newyork), [CCCNY](//facebook.com/cccny1932), [AAFE](//facebook.com/aafe1974), [CSWA](//facebook.com/ChineseStaffWorkersAssociation), [CBANYC](//facebook.com/ccbanyc), [CMP NY](//facebook.com/cmpnewyork), [NY Chinese School](//facebook.com/officialNYCS), [CAVF](//facebook.com/cavotersfederation), [CAAAV](//facebook.com/caaavnyc), [CAASF](//t.co/9pcuqJ3LpK); [ThinkChinatown](//facebook.com/ThinkChinatown), [CAPACD](//t.co/v62SE4f4lw), [CPC NYC](//t.co/VYa48Qc71A), [CWG NYC](//facebook.com/cwg.nyc), [CACF](//facebook.com/Chinese-American-Citizens-Alliance-131094956935672) ([Houston](//facebook.com/Chinese-American-Citizens-Alliance-Houston-243187775880385), [SGV](//facebook.com/Chinese-American-Citizens-Alliance-Greater-San-Gabriel-Valley-Lodge-2003875516499175), [SA](//facebook.com/SATX8888), [Boston](//facebook.com/CACABoston), [ABQ](//facebook.com/Chinese-American-Citizens-Alliance-ABQ-Lodge-213272682038134), [SEA](//facebook.com/CACASeattle), [PDX](//facebook.com/cacaportland), [LA](//facebook.com/cacalosangeles), [LV](//facebook.com/Chinese-American-Citizens-Alliance-Las-Vegas-NV-Lodge-1576474745949617), [Chicago](//facebook.com/CACAChicago), [Oakland](//facebook.com/Chinese-American-Citizens-Alliance-Oakland-Lodge-1626853300887300), [PHX](//facebook.com/cacaphx), [NYC](//facebook.com/CACFnyc); [UCA Brooklyn](//facebook.com/United-Chinese-Association-of-Brooklyn-126552224721572); [CPACS](//t.co/l0YkWgdAxJ) (ATL); [Charles B. Wang CHC](//t.co/R0bOXWpcbS) not same as the nearby similarly named [Charles B Wang Ctr](//t.co/0x1ZKBRCI3); [AA Foundation](//t.co/3noeIRdJXV); [KCS NY](//t.co/k0wx3OFhtO); [KCDSC PHL](//t.co/NVhPPCpL0t) [CAIPA NY](//t.co/zQm5nbuyTt); [ACDC](//t.co/FnTXbitvX4) (NV); [CYI NYC](//t.co/Ny71ohY0v3), [HCS](//facebook.com/HomecrestServices), [Chinatown Mural Project](//facebook.com/chinatownmuralproject), [Chinatown Core Block](//facebook.com/The-Chinatown-Core-Block-Association-523401904781129), [NYC Residents Alliance](//facebook.com/nycresidentsalliance), [UA3](//facebook.com/UA3now); [AFSS]() [Austin](//instagram.com/afssaustin)
+Orgs: [APICAN](//t.co/0aRVwMrDsc) (MA); [CPA NY](//facebook.com/cpa.newyork), [CCCNY](//facebook.com/cccny1932), [AAFE](//facebook.com/aafe1974), [CSWA](//facebook.com/ChineseStaffWorkersAssociation), [CBANYC](//facebook.com/ccbanyc), [CMP NY](//facebook.com/cmpnewyork), [NY Chinese School](//facebook.com/officialNYCS), [CAVF](//facebook.com/cavotersfederation), [CAAAV](//facebook.com/caaavnyc), [CAASF](//t.co/9pcuqJ3LpK); [ThinkChinatown](//facebook.com/ThinkChinatown), [CAPACD](//t.co/v62SE4f4lw), [CPC NYC](//t.co/VYa48Qc71A), [CWG NYC](//facebook.com/cwg.nyc), [CACF](//facebook.com/Chinese-American-Citizens-Alliance-131094956935672) ([Houston](//facebook.com/Chinese-American-Citizens-Alliance-Houston-243187775880385), [SGV](//facebook.com/Chinese-American-Citizens-Alliance-Greater-San-Gabriel-Valley-Lodge-2003875516499175), [SA](//facebook.com/SATX8888), [Boston](//facebook.com/CACABoston), [ABQ](//facebook.com/Chinese-American-Citizens-Alliance-ABQ-Lodge-213272682038134), [SEA](//facebook.com/CACASeattle), [PDX](//facebook.com/cacaportland), [LA](//facebook.com/cacalosangeles), [LV](//facebook.com/Chinese-American-Citizens-Alliance-Las-Vegas-NV-Lodge-1576474745949617), [Chicago](//facebook.com/CACAChicago), [Oakland](//facebook.com/Chinese-American-Citizens-Alliance-Oakland-Lodge-1626853300887300), [PHX](//facebook.com/cacaphx), [NYC](//facebook.com/CACFnyc); [UCA](//t.co/yxPBNoeXfd): [WAVES](//t.co/3BAioI653q) ([their op-ed writing seminar](//y2u.be/JyduPd5cjBw), [Brooklyn](//t.co/50NfZaXQyO)'s [Twitter](//twitter.com/ucaob_ny) and [Facebook](//facebook.com/United-Chinese-Association-of-Brooklyn-126552224721572); [CPACS](//t.co/l0YkWgdAxJ) (ATL); [Charles B. Wang CHC](//t.co/R0bOXWpcbS) not same as the nearby similarly named [Charles B Wang Ctr](//t.co/0x1ZKBRCI3); [AA Foundation](//t.co/3noeIRdJXV); [KCS NY](//t.co/k0wx3OFhtO); [KCDSC PHL](//t.co/NVhPPCpL0t) [CAIPA NY](//t.co/zQm5nbuyTt); [ACDC](//t.co/FnTXbitvX4) (NV); [CYI NYC](//t.co/Ny71ohY0v3), [HCS](//facebook.com/HomecrestServices), [Chinatown Mural Project](//facebook.com/chinatownmuralproject), [Chinatown Core Block](//facebook.com/The-Chinatown-Core-Block-Association-523401904781129), [NYC Residents Alliance](//facebook.com/nycresidentsalliance), [UA3](//facebook.com/UA3now); [AFSS]() [Austin](//instagram.com/afssaustin)
 
 ### Civic, Social, Commmunity, Non-Profit
 Their goals are political but non-partisan.
@@ -221,9 +221,14 @@ Orgs: [AAYLC](//facebook.com/AAYLC-Asian-American-Youth-Leadership-Conference-10
 Analysis: Too little about adoptees (Chinese, Korean, central Asian all have 100,000s in the US)
 
 ### Collegiate, YP (Young Professionals)
-Orgs: [AHN](//twitter.com/asianhustlentwk) by [Maggie Chui](//twitter.com/maggchui); TAP [NYC](//facebook.com/tapny), [DC](//facebook.com/TaiwaneseAmericanProfessionalsDC), [SF](//facebook.com/TAPSF.CA), [SD](//facebook.com/tapsandiego), [TACL](//facebook.com/tacl.lyf) (disambiguated from the [adult same-name one](//facebook.com/tacl.org)), [SEA](//facebook.com/TAPSinSeattle), [Chicago](//facebook.com/TapChicago), [ATL](//facebook.com/tap.atl), [HI](//facebook.com/taphonolulu), [Detroit](//facebook.com/TAPDetroit1), [Madison](//facebook.com/MADTAP), [PDX](//facebook.com/Taiwanese-American-Professionals-Portland-Chapter-107930750843234), [ATX](//facebook.com/tapatx); [TANG](//facebook.com/TaiwaneseAmericanNextGeneration); [Alike Dating](//t.co/CpmhJMSu8H)
+Orgs: [AHN](//twitter.com/asianhustlentwk) by [Maggie Chui](//twitter.com/maggchui); TAP [NYC](//facebook.com/tapny), [DC](//facebook.com/TaiwaneseAmericanProfessionalsDC), [SF](//facebook.com/TAPSF.CA), [SD](//facebook.com/tapsandiego), [TACL's LYF](//t.co/HH7OxpPv3m); [SEA](//facebook.com/TAPSinSeattle), [Chicago](//facebook.com/TapChicago), [ATL](//facebook.com/tap.atl), [HI](//facebook.com/taphonolulu), [Detroit](//facebook.com/TAPDetroit1), [Madison](//facebook.com/MADTAP), [PDX](//facebook.com/Taiwanese-American-Professionals-Portland-Chapter-107930750843234), [ATX](//facebook.com/tapatx); [TANG](//facebook.com/TaiwaneseAmericanNextGeneration); [Alike Dating](//t.co/CpmhJMSu8H)
 
 Medical: [AMA warning](//bit.ly/3c8pfdt); [Dr. Jenny Wang](//t.co/WmlrILdq6d) for AAPI women specific therapy in TX, NC; [APISAA Therapist Directory](//t.co/XWoL0vbpRc); [Whitecoats Against Asian Hate](//instagram.com/whitecoats.against.asianhate) ([interview](//y2u.be/AlJxw5-qZD8))
+
+### Romance, Dating, Relationship
+Articles: "[Confronting Race on the First Date](//t.co/fcMSU1YpRG)" by [Andrew Lee](//twitter.com/ndrewlee)
+
+Analysis: Most apps amplify, accelerate, and exaggerate pre-existing social trends such as yellow fever and WMAF hate.
 
 ## Inspirational, Motivational
 
@@ -237,7 +242,7 @@ Speaking of outcasts, this is a good place to place a list of those most outcast
 ## Ethnic
 Orgs: [VAPA](//facebook.com/VietnameseProfessionalsofTampaBay); [VAA](//facebook.com/VAANetwork); [VAA](//facebook.com/vaachabot); [NOVAL](//facebook.com/novaldc.org); UVSL of [Midwest](//facebook.com/UVSAMidwest), [North America](//facebook.com/UNAVSA), [CMU](//facebook.com/groups/gmuvsa), [Suffolk](//facebook.com/groups/SUVSA), [ODU](//facebook.com/ODUVSA6), [ATL](//facebook.com/uvsase), [MAUVSA](//facebook.com/MAUVSA); [VAL Summit](//facebook.com/VALSummit)
 
-Orgs: [TAA](//facebook.com/TAAUSA) [NYC](//facebook.com/TAANewYork), [central NY](//facebook.com/taacny), [Chicago](//facebook.com/TAA.Chicago); [TACL](//facebook.com/tacl.org) [LA](//facebook.com/Taiwanese-American-Citizens-League-Los-Angeles-Chapter-968089289995056) (disambiguated from the [youth same-name one](//facebook.com/tacl.lyf); [NATMA](//facebook.com/natma.gny); [TAO](//facebook.com/TaoxUCI); [SETAA](//facebook.com/setaa1979)
+Orgs: [TAA](//facebook.com/TAAUSA) [NYC](//facebook.com/TAANewYork), [central NY](//facebook.com/taacny), [Chicago](//facebook.com/TAA.Chicago); [TACL](//t.co/ySqEpnYu8w): [Youth](//t.co/HH7OxpPv3m), [LA](//facebook.com/Taiwanese-American-Citizens-League-Los-Angeles-Chapter-968089289995056); [NATMA](//facebook.com/natma.gny); [TAO](//facebook.com/TaoxUCI); [SETAA](//facebook.com/setaa1979)
 
 ## Fundraise for victims, families
 Plus movements, research. Emulate others.
@@ -286,7 +291,9 @@ Mags: ''[Chinosity](//t.co/ZvCiqSsGmH)'', [Cold Tea Collective](//t.co/jU8eTN0yM
 ## Build solidarity through Intersectionality
 There's thousands of allied shared orgs, movements, causes, groups, and allies in so many areas, notably arts, cultural, ethnics, and social movements who've been doing related work for years, too. They might intersect more with your existing, deeper interests.
 
-Orgs: [AAWA](//facebook.com/AsianAmericanWomensAlliance): [NYU](//t.co/g6Nmh96FkZ); [NAPAWF](//t.co/Qpz7z469Pp) including [21 April 2021 event](//t.co/0eGYKmBLhP); [Womankind](//t.co/FfvuBO90KK); [SFAWS](//t.co/JvI4uH7OVB); [SASE](//t.co/arLisN3EI2), [AAPA](//t.co/NGwS4QJCWA), [AILA](//t.co/rSNwygEQae), [AABANY](//t.co/WJQHgeUBvh); [JACL](//t.co/RGj7cc7r2Y); [TALA](//facebook.com/1994TALA) similar to the inactive [TALC](//talc-dc.org); [NAAAP](//t.co/7vQQrrVi1g) which is uncannily like [AAAPNY](//facebook.com/groups/1651303801749164); [Not In Our Town](//t.co/kAdo8wOJzk) and [Not In Our School](//t.co/SBZp7UdI0P) (Related: [Youth](#kids-youth-preteens-teenagers))
+Legal, Judicial, Policy: [Asian American Policy Review](//t.co/564OIiqeMr); [AAWA](//facebook.com/AsianAmericanWomensAlliance): [NYU](//t.co/g6Nmh96FkZ); [NAPAWF](//t.co/Qpz7z469Pp) including [21 April 2021 event](//t.co/0eGYKmBLhP); [Womankind](//t.co/FfvuBO90KK); [SFAWS](//t.co/JvI4uH7OVB); [SASE](//t.co/arLisN3EI2), [AAPA](//t.co/NGwS4QJCWA), [AILA](//t.co/rSNwygEQae) ([Greg Chen](//twitter.com/GregChenAILA)); [AABANY](//t.co/WJQHgeUBvh) ([Yang Chen](//twitter.com/aabanyEd)); [JACL](//t.co/RGj7cc7r2Y); [TALA](//facebook.com/1994TALA) similar to the inactive [TALC](//talc-dc.org); [NAAAP](//t.co/7vQQrrVi1g) ([KC](//t.co/ESqVHG9Hsb)) which is uncannily like [AAAPNY](//facebook.com/groups/1651303801749164); [Not In Our Town](//t.co/kAdo8wOJzk) and [Not In Our School](//t.co/SBZp7UdI0P) (Related: [Youth](#kids-youth-preteens-teenagers))
+
+Immigration: [Immigration Law Professors Blog](//t.co/h1PjDwGpfx); [Tony Choi](//t.co/dUAYdDAyMl) of [Immigrants Rise](//t.co/L6C3o38hQI)
 
 Journalism: [AAJA](//t.co/q3akNvOApN); [write an op-ed](//tinyurl.com/UCA-SilentNoMore)
 
