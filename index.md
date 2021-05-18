@@ -6,6 +6,10 @@ title: StopAAPIHate.us
 # What _you_ can do About anti-Asian Hate
 Read a [simpler version of this page](//t.co/f8iWLI8kuU) ([Tweet](//twitter.com/joeyng/status/1362922187611537408)); [summary](//facebook.com/invisibleasians/posts/103494218467377); [Facebook singular post](//facebook.com/photo/?fbid=10160909652963135&set=a.10150625334458135); [link list](//t.co/UiClM97MOj) ([alt](//bit.ly/aapilove)); an [explanation](//nextshark.com/anti-asian-assaults-racism-may-lee); or below.
 
+It's a lot. Because you can do a lot.
+
+Our diversity is our power. We've many paths to power.
+
 ## Be, Stay Informed
 Read [a list](//t.co/ZjhkbXa6OG) or a [report](//t.co/dGcdasjJeZ).
 
@@ -45,6 +49,11 @@ Telegram: [#STOP ASIAN HATE - CH ONLINE SILEN PROTEST](//t.me/stopasianhate)
 
 Analysis: All media orgs, social or chat apps or mainstream or whatever, use algorithms to max data haul. As such, they may anti-Asian American hate news. Media use (app, web, messengers, anything) tracks user engagement (not just clicks, but lingers, scrolls, edits, etc.) for big data, sales (of data access not the data itself which is more useful kept native), and advertiser dollars.
 
+## Events
+[Act To Change](//eventbrite.com/o/act-to-change-20092638776) leads to related ones; [Asian American Expo 201](//t.co/ZphSSmcn8W) ([promo](//y2u.be/JojD9Xh7ADg)) ongoing; [See Us Unite for Change](//t.co/yUOG7blE4O) on 21 May 2021 20:00(ET)
+
+Related: [Rally](#rally)
+
 ## Report
 Privately: [StopAAPIHate.org](//t.co/tjHqwy28HY); see [Journalist](#journalist)
 
@@ -81,7 +90,9 @@ Media review:
 1. [Mainstream and for-profit media ignore Asians](//thecrimson.com/article/2021/2/25/conde-media-coverage-asian-america-issues) as their sole goal, clicks for profit, is not ours.
 
 ## Storytell
-Telling your story empowers you, the silent, and our community (i.e. [#metoo](//twitter.com/hashtag/metoo)).
+Telling your story empowers you, the silent, and our community (i.e. [#metoo](//twitter.com/hashtag/metoo)). Special note to tell the stories of our elders.
+
+And speak about it. Here's [one way how](//y2u.be/204lTCAr2nw).
 
 Orgs: [Biasian Project](//t.co/Y1PBfw3Fei); [LUNAR](//t.co/u9zd2GVq7B); [InTheVisible](//t.co/DUZfWFc1UA) by Lucia Tran; [East Side Stories](//eastsidestories.org/mission-statement) with [Yuena Li](//youtube.com/user/SimplyYue); [AsiansBelong](//t.co/wNrH4ARf6h) (doesn't link to their [Twitter](//twitter.com/AsiansBelong)), [Hello Prosper](//t.co/G6ix0C13K8); [AAWW](//t.co/VvnNO9zMmZ); [Invisible Asians](//t.co/9q3KHfaQ3z) ([infographic](//facebook.com/invisibleasians/posts/103494218467377)); [Dear Asian Americans](//instagram.com/dearasianamericans) by [Jerry Won](//t.co/uTmDmBcPxk) and their [AsianAm Club](//t.co/23ouFGAnxx); [iamasianamerican](//instagram.com/iam_asianamerican); [AzN Zoomer](//instagram.com/asianzoomer); [Very Asian Media](//t.co/xDkEBbVR9M); [segregasian](//t.co/rB9tMuj3pw) (infographics); [asiansneverdie](//instagram.com/asiansneverdie), [Asians Are Strong](//asiansarestrong.org); [villyvillyvonka](instagram.com/villyvillyvonka); [fareastsociety8](instagram.com/fareastsociety8); [rooftop_asians_92](//instagram.com/rooftop_asians_92) ([what the reference means](//huffpost.com/entry/roof-koreans-meme-know-real-story_n_5ee110a1c5b6d5bafa5604f3)); [subtle asian traits](//facebook.com/groups/1343933772408499), [ANAF](//facebook.com/AsiansNowAsiansForever), [aapinarratives](//instagram.com/aapinarratives), [asiantravellersadvocate](//instagram.com/asiantravellersadvocate); [streetvoicesto](//instagram.com/streetvoicesto) (non-US but excellent); [18millionrising](//t.co/l7Ru73XKzE) (used to be more stories, now veering towards politics)
 
@@ -113,7 +124,7 @@ Fine Arts: [Clarion Alley Mural](//gofundme.com/f/antiasian-racism-art-mural-in-
 
 Performing (Dance) Arts: [Braznazn](//twitter.com/braznazn); [Gunther Pradeep](//t.co/GvlOtkjvzm) (non-US but great)
 
-Performing (Drama, Theatrical, Operatic, Stage): [AAAA](//t.co/KUaHIXPajn)i (doesn't link to [Twitter](//twitter.com/aaartsalliance)); [AAPAC NYC](//t.co/fgqPMwi2Oa)
+Performing (Acting, Drama, Theatrical, Operatic, Stage): [AAAA](//t.co/KUaHIXPajn)i (doesn't link to [Twitter](//twitter.com/aaartsalliance)); [AAPAC NYC](//t.co/fgqPMwi2Oa); [excellent testimonial](//instagram.com/p/CMnosh3BLw-)
 
 Orgs: [CAPE](//t.co/TFxGdzfhLa), [Gold House](//t.co/v5QwqaBFVw)'s [#GoldOpen](//twitter.com/hasthag/GoldOpen), [Asians in LA](//facebook.com/groups/asiansinla), [RepresentASIAN](//facebook.com/representasianproject); [CAAM](//t.co/HNBAxqsZZ4); [FilAm ARTS](//t.co/lGJeuP9Kqv); [Asian Boss](//t.co/JNoskV67KG); [Start with 8 Hollywood](//t.co/tL4WtIo3Hc) by [Thuc Nguyen](//t.co/JYAwqs4CKV)
 
@@ -121,7 +132,7 @@ Actors: Most are outspoken, notably: [George Takei](//t.co/FESrB1JExy) (["It's r
 
 Documentaries: _[And Then They Came](//t.co/EXIFv5k0pk)_; _[Southern AAPI](//t.co/GPgOzywPZq)_; _[Far East Deep South](//t.co/CDCt5n2VFi)_; _[Conscience](//t.co/KGbppTfnxI)_ (doesn't link to [their Twitter](//twitter.com/ConscienceDVD)); "[Who Killed Vincent Chin?](//t.co/fI68OxspfN)" by [Renee Tajima-Peña](//t.co/NqSkpgprTJ)
 
-Podcasts: [more](//linktr.ee/JustAsianThingsPodcast); [AZI Media](//t.co/CKxWeRS4XH)'s "[At the Moment](//t.co/Sv7o8Y1toG)"; [Model Minority Report](//twitter.com/modminrep) by [Allie Moreno](//instagram.com/alliemoreno); [Model Majority](//t.co/wLqWaSCj7V); [Wong Fu Productions](//t.co/VhczV9KBnn); [Beyond Asian](//twitter.com/Beyond_Asian); [Asian Provocation](//t.co/fiUPyw0sr5); [Electric Image Express](//t.co/GjctFB4OyL); [Asian Americana](//t.co/hrynW7yqcR); [Southern Fried Asian](//twitter.com/SouthernAsians); [Asian Fail](//t.co/L8oNACtJX7); [Asian Not Asian](//t.co/FglKwQ2zQJ); [Heroic Purgatory](//twitter.com/HeroicPurgatory); [Asian Enough](//t.co/CKxWeRS4XH); [Potluck Collective](//twitter.com/podcastpotluck) includes [Books and Boba](//t.co/1Jxzt4YQoZ); [Good Pop Culture Club](//t.co/2PDOLryX1B); [K-Pop Daeback](//linktr.ee/daebakshow); [Korean Drama](//t.co/E3SU4QfnFt); [Project Voice](//t.co/lrNMzHCePk); [They Call Us Bruce](//t.co/3soNm8OZfQ), [Asian Pacific Arts](//t.co/9YbkeBLiO6), [Azns Represent](//t.co/LMPgQZYqhV), [AA Podcasters](//t.co/LZOdHVhSZa), [Asian Boss Girl](//t.co/zfDkTNiKng) (on SiriusXM); [Asian Girl in a Western World](//t.co/WgD0qwev7B); [Asian Menswear](//t.co/boXruaxkj4); [Podcast on Fire](//t.co/rtFMgVhNln), [Brown Taboo Project](//t.co/nZn14SDoQ7), [Asian Glow](//t.co/5wZF1S0ERh), [Asian Voices](//t.co/xcpYHbYxW2), [Asian Female Lead](//t.co/OpcAEMAGc0), [Time to Say Goodbye](//t.co/hZvJ01vMpu), [SilkSteel](//t.co/IMsjy5m5Qp); [Campu](//t.co/iB2RRww5nX); [Talk with Donuts](//t.co/84LUzhbqPg); [Happy Asian Woman](//t.co/wqoBSNeSD3) (site doesn't link to [their Twitter](//twitter.com/acchen)); [First of All](//twitter.com/firstofallpod); [Saturday School](//t.co/z3OZ8Bmimw); Fanti episode 11 "[Proud to Be an (Asian) American?](//t.co/q128fijHMZ)" ([Tweet](//twitter.com/jenyamato/status/1250870635670069248), [Tweet](//twitter.com/FANTIPodcast/status/1250821216585187329), [Tweet](//twitter.com/TrevellAnderson/status/1250870185763811329), [Tweet](//twitter.com/FANTIPodcast/status/1252756753713819649)); [a lot more](//google.com/search?client=safari&rls=en&q=site:earwolf.com+asian&ie=UTF-8&oe=UTF-8); [Heartland Mainland, The Iowa China Podcast](//t.co/xl6qXIrXFL); [Chinese Chippy Girl](//t.co/C4xEBT9TkA) (non-US but excellent)
+Podcasts: [more](//linktr.ee/JustAsianThingsPodcast); [AZI Media](//t.co/CKxWeRS4XH)'s "[At the Moment](//t.co/Sv7o8Y1toG)"; [Model Minority Report](//twitter.com/modminrep) by [Allie Moreno](//instagram.com/alliemoreno); [Model Majority](//t.co/wLqWaSCj7V); [Wong Fu Productions](//t.co/VhczV9KBnn); [Beyond Asian](//twitter.com/Beyond_Asian); [Asian Provocation](//t.co/fiUPyw0sr5); [Electric Image Express](//t.co/GjctFB4OyL); [Asian Americana](//t.co/hrynW7yqcR); [Southern Fried Asian](//twitter.com/SouthernAsians); [Asian Fail](//t.co/L8oNACtJX7); [Asian Not Asian](//t.co/FglKwQ2zQJ); [Heroic Purgatory](//twitter.com/HeroicPurgatory); [Asian Enough](//t.co/CKxWeRS4XH); [Potluck Collective](//twitter.com/podcastpotluck) includes [Books and Boba](//t.co/1Jxzt4YQoZ); [Good Pop Culture Club](//t.co/2PDOLryX1B); [K-Pop Daeback](//linktr.ee/daebakshow); [Korean Drama](//t.co/E3SU4QfnFt); [Project Voice](//t.co/lrNMzHCePk); [They Call Us Bruce](//t.co/3soNm8OZfQ), [Asian Pacific Arts](//t.co/9YbkeBLiO6), [Azns Represent](//t.co/LMPgQZYqhV), [AA Podcasters](//t.co/LZOdHVhSZa), [Asian Boss Girl](//t.co/zfDkTNiKng) (on SiriusXM); [Asian Girl in a Western World](//t.co/WgD0qwev7B); [Asian Menswear](//t.co/boXruaxkj4); [Podcast on Fire](//t.co/rtFMgVhNln), [Brown Taboo Project](//t.co/nZn14SDoQ7), [Asian Glow](//t.co/5wZF1S0ERh), [Asian Voices](//t.co/xcpYHbYxW2), [Asian Female Lead](//t.co/OpcAEMAGc0), [Time to Say Goodbye](//t.co/hZvJ01vMpu), [SilkSteel](//t.co/IMsjy5m5Qp); [Campu](//t.co/iB2RRww5nX); [Talk with Donuts](//t.co/84LUzhbqPg); [Happy Asian Woman](//t.co/wqoBSNeSD3) (site doesn't link to [their Twitter](//twitter.com/acchen)); [First of All](//twitter.com/firstofallpod); [Saturday School](//t.co/z3OZ8Bmimw); Fanti episode 11 "[Proud to Be an (Asian) American?](//t.co/q128fijHMZ)" ([Tweet](//twitter.com/jenyamato/status/1250870635670069248), [Tweet](//twitter.com/FANTIPodcast/status/1250821216585187329), [Tweet](//twitter.com/TrevellAnderson/status/1250870185763811329), [Tweet](//twitter.com/FANTIPodcast/status/1252756753713819649)); [a lot more](//google.com/search?client=safari&rls=en&q=site:earwolf.com+asian&ie=UTF-8&oe=UTF-8); [Heartland Mainland, The Iowa China Podcast](//t.co/xl6qXIrXFL); [Chinese Chippy Girl](//t.co/C4xEBT9TkA) (non-US but excellent); [Fresh off the Vote](//t.co/qK5mqmcxo9); [Asian Provocation](//t.co/agLtFTFyB6) by [Ayoto Ataraxia](//t.co/fiUPyw0sr5)
  
 [Black K-pop](//t.co/f3d665Mev6) and anime fans are many, but some have [problems](//instagram.com/p/CL7Fwy8nBgDrAW1cvt6eZJtLZZNzRZF1QXHek00).
 
@@ -138,7 +149,7 @@ See [list](//twitter.com/i/lists/1192831042706694149). Particularly outspoken is
 Articles: "[Keeping Love Close](//t.co/xNFZBIItPp)" by [Celeste Ng](//t.co/QuNa225TPq)
 
 #### Literature: Youth, Parents, Parenting
-Org: [BiCultural Mama](//t.co/cEXv6hQFRy); [Pragmatic Mom](//t.co/Hp4o00uI9q) (notably [this list](//bit.ly/2KOlBZ1)); [Raising Luminaries](//t.co/CCBi7TUNek) (formerly [Books for Littles](//twitter.com/hashtag/booksforlittles))
+Org: [Untigering](//t.co/zu5GSbyVZN) ([more](//msha.ke/untigering)); [BiCultural Mama](//t.co/cEXv6hQFRy); [Pragmatic Mom](//t.co/Hp4o00uI9q) (great lists of [AAPI authors and illustrators](//bit.ly/2KOlBZ1) and [AAPI books for kids](//t.co/zAlOTF4v40)); [Raising Luminaries](//t.co/CCBi7TUNek) (formerly [Books for Littles](//twitter.com/hashtag/booksforlittles))
 
 Articles: "[Your Asian Friends Are Not Okay](//t.co/nIsT3Ql2Yi)" ([Tweet](//twitter.com/ScaryMommy/status/1377684947952095233)) by [Virginia Duan / Mandarin Mama](//t.co/OWRkDUxNeF)
 
@@ -163,7 +174,7 @@ Orgs: [FilVetsRep](//t.co/FhzjftZ9mu); [Lt. Kimlau Post 1291](//facebook.com/LtK
 Analysis: Filipinos in the US military have a major, long affiliation then and now. See a [salute](//y2u.be/pLq_07REniY) (03:32).
 
 ### Food, Cooking, Culinary
-[Subtle Asian Cooking](//t.co/8f6R7EhVxy); [Martin Yan](//y2u.be/MoHdVwXDgCI?t=8) (26:48); Yelp's [Asian-owned business attribute](//t.co/8mhjO7Utkv), [APIHM events](//yelp.com/events/san-francisco-asian-pacific-islander-heritage-month)
+[Subtle Asian Cooking](//t.co/8f6R7EhVxy); [Martin Yan](//y2u.be/MoHdVwXDgCI?t=8) (26:48); Yelp's [Asian-owned business attribute](//t.co/8mhjO7Utkv), [APIHM events](//yelp.com/events/san-francisco-asian-pacific-islander-heritage-month); [Syr](//instagram.com/syr.meal) (indie chefs)
 
 ## Support AAPI Businesses, Professionals
 
@@ -223,7 +234,12 @@ Analysis: Too little about adoptees (Chinese, Korean, central Asian all have 100
 ### Collegiate, YP (Young Professionals)
 Orgs: [AHN](//twitter.com/asianhustlentwk) by [Maggie Chui](//twitter.com/maggchui); TAP [NYC](//facebook.com/tapny), [DC](//facebook.com/TaiwaneseAmericanProfessionalsDC), [SF](//facebook.com/TAPSF.CA), [SD](//facebook.com/tapsandiego), [TACL's LYF](//t.co/HH7OxpPv3m); [SEA](//facebook.com/TAPSinSeattle), [Chicago](//facebook.com/TapChicago), [ATL](//facebook.com/tap.atl), [HI](//facebook.com/taphonolulu), [Detroit](//facebook.com/TAPDetroit1), [Madison](//facebook.com/MADTAP), [PDX](//facebook.com/Taiwanese-American-Professionals-Portland-Chapter-107930750843234), [ATX](//facebook.com/tapatx); [TANG](//facebook.com/TaiwaneseAmericanNextGeneration); [Alike Dating](//t.co/CpmhJMSu8H)
 
-Medical: [AMA warning](//bit.ly/3c8pfdt); [Dr. Jenny Wang](//t.co/WmlrILdq6d) for AAPI women specific therapy in TX, NC; [APISAA Therapist Directory](//t.co/XWoL0vbpRc); [Whitecoats Against Asian Hate](//instagram.com/whitecoats.against.asianhate) ([interview](//y2u.be/AlJxw5-qZD8))
+Medical, Doctors: [AMA warning](//bit.ly/3c8pfdt); [Dr. Jenny Wang](//t.co/WmlrILdq6d) for AAPI women specific therapy in TX, NC; [APISAA Therapist Directory](//t.co/XWoL0vbpRc); [Whitecoats Against Asian Hate](//instagram.com/whitecoats.against.asianhate) ([interview](//y2u.be/AlJxw5-qZD8))
+
+### Psychologists, Therapists, Mental Health
+So many AAPI are seeking or should be seeking therapy for so much pent up emotions whether from internalized racism, self-hate, bullying's effects, feeling ignored, etc. Advocate for using the tool for the job.
+
+Orgs: 
 
 ### Romance, Dating, Relationship
 Articles: "[Confronting Race on the First Date](//t.co/fcMSU1YpRG)" by [Andrew Lee](//twitter.com/ndrewlee)
@@ -288,8 +304,8 @@ Media: [asians_rise_up](//instagram.com/asians_rise_up), [asiansadvocate](//inst
 
 Mags: ''[Chinosity](//t.co/ZvCiqSsGmH)'', [Cold Tea Collective](//t.co/jU8eTN0yM2), ''[Sparks](//t.co/zQJkJfAfhV)''; ''[Hapa](//t.co/A3Zb7Mrnlq)''; ''[Hyphen](//t.co/s9cPnBsR5S)''; [chopblock](//t.co/b7tbAzlN8d) successor of ''[Yolk](//en.wikipedia.org/wiki/Yolk_magazine)'' (not to be confused with the non-US magazine of the same name, ''[Yolk](//twitter.com/yolkmagau)''); 
 
-## Build solidarity through Intersectionality
-There's thousands of allied shared orgs, movements, causes, groups, and allies in so many areas, notably arts, cultural, ethnics, and social movements who've been doing related work for years, too. They might intersect more with your existing, deeper interests.
+## Build Solidarity through Intersectionality
+There're thousands of allied shared orgs, movements, causes, groups, and allies in so many areas, notably arts, cultural, ethnics, and social movements who've been doing related work for years, too. They might intersect more with your existing, deeper interests.
 
 Legal, Judicial, Policy: [Asian American Policy Review](//t.co/564OIiqeMr); [AAWA](//facebook.com/AsianAmericanWomensAlliance): [NYU](//t.co/g6Nmh96FkZ); [NAPAWF](//t.co/Qpz7z469Pp) including [21 April 2021 event](//t.co/0eGYKmBLhP); [Womankind](//t.co/FfvuBO90KK); [SFAWS](//t.co/JvI4uH7OVB); [SASE](//t.co/arLisN3EI2), [AAPA](//t.co/NGwS4QJCWA), [AILA](//t.co/rSNwygEQae) ([Greg Chen](//twitter.com/GregChenAILA)); [AABANY](//t.co/WJQHgeUBvh) ([Yang Chen](//twitter.com/aabanyEd)); [JACL](//t.co/RGj7cc7r2Y); [TALA](//facebook.com/1994TALA) similar to the inactive [TALC](//talc-dc.org); [NAAAP](//t.co/7vQQrrVi1g) ([KC](//t.co/ESqVHG9Hsb)) which is uncannily like [AAAPNY](//facebook.com/groups/1651303801749164); [Not In Our Town](//t.co/kAdo8wOJzk) and [Not In Our School](//t.co/SBZp7UdI0P) (Related: [Youth](#kids-youth-preteens-teenagers))
 
@@ -299,7 +315,7 @@ Journalism: [AAJA](//t.co/q3akNvOApN); [write an op-ed](//tinyurl.com/UCA-Silent
 
 Events: [10 March 2021 19:30 by Cheryl Leong](//facebook.com/cheryl.leong.731/posts/769539953968333)
 
-Blacks have shown up big time, but there are [many discussions](//y2u.be/jkE1WOOwTCs) (01:31:28).
+Blacks have shown up big time, but there are so many talks with [Black panelists](//y2u.be/jkE1WOOwTCs) (01:31:28), [WongFu thought leaders](//y2u.be/vLFhoGAlX7w) (37:22)
 
 ### Education
 Education (not just public, but all) is inherently a social movement.
