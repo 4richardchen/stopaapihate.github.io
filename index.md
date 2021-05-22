@@ -10,7 +10,10 @@ It's a lot. Because you can do a lot.
 
 Our diversity is our power. We've many paths to power.
 
-## Be, Stay Informed
+Orgs: [TAAF](//t.co/VZUPbJBWsg) (immense visibility, power, and principled deployment at scale; [launch video](//y2u.be/E2t12HAUx3s)); [Stop AAPI Hate](//t.co/tjHqwy28HY)
+
+Canada: [ACCT Foundation](//t.co/7YXb6QV4d8); [Asian Gold Ribbon](//t.co/hfAO6o7miK)
+[## Be, Stay Informed
 Read [a list](//t.co/ZjhkbXa6OG) or a [report](//t.co/dGcdasjJeZ).
 
 Articles: "[The Anti-Asian Hate Crime Capital of North America is Vancouver](//t.co/QUp5WLR6sj)" and [why](//t.co/GXcKc6sSr8)
@@ -21,7 +24,7 @@ All media profits from tracking user engagement to sell advertising access. Expl
 #### Join Groups
 They're where most of the social media action is happening.
 
-ClubHouse: [AAPI Townhall](//docs.google.com/document/d/1ofWEB6ZIPI6emYuYwPwWOuFcqGpk9tXgXLmXxeJqsIQ); [AsianAm Club](//t.co/23ouFGAnxx); their [icon is an AAPI](//t.co/2T3Sq4pKzv)
+ClubHouse: [AAPI Townhall](//docs.google.com/document/d/1ofWEB6ZIPI6emYuYwPwWOuFcqGpk9tXgXLmXxeJqsIQ); [AsianAm Club](//t.co/23ouFGAnxx); their [icon is an AAPI](//t.co/2T3Sq4pKzv); events from group [StopAAPIHate](//joinclubhouse.com/event/myWl7wre)
 
 Facebook Groups:
 * [Asians Today](//facebook.com/groups/asianstoday) — raises social awareness in the Asian diaspora
@@ -52,18 +55,21 @@ Telegram: [#STOP ASIAN HATE - CH ONLINE SILEN PROTEST](//t.me/stopasianhate)
 Analysis: All media orgs, social or chat apps or mainstream or whatever, use algorithms to max data haul. As such, they may anti-Asian American hate news. Media use (app, web, messengers, anything) tracks user engagement (not just clicks, but lingers, scrolls, edits, etc.) for big data, sales (of data access not the data itself which is more useful kept native), and advertiser dollars.
 
 ## Events
-[Act To Change](//eventbrite.com/o/act-to-change-20092638776) ([May 18 AAPI Day Against Bullying](//t.co/Ly47FcmWwP); [Asian American Expo 2021](//t.co/ZphSSmcn8W) ([promo](//y2u.be/JojD9Xh7ADg)) ongoing; [See Us Unite for Change](//t.co/yUOG7blE4O) on 21 May 2021 20:00(ET) by [TAAF](//t.co/VZUPbJBWsg)
+[Act To Change](//eventbrite.com/o/act-to-change-20092638776) ([May 18 AAPI Day Against Bullying](//t.co/Ly47FcmWwP); [Asian American Expo 2021](//t.co/ZphSSmcn8W) ([promo](//y2u.be/JojD9Xh7ADg)) ongoing; [See Us Unite for Change](//t.co/yUOG7blE4O) on 21 May 2021 by [TAAF](//t.co/VZUPbJBWsg)
 
 Related: [Rally](#rally)
 
 ## Report
-Privately: [StopAAPIHate.org](//t.co/tjHqwy28HY); see [Journalist](#journalist)
+Privately: [Stop AAPI Hate](//t.co/tjHqwy28HY); see [Journalist](#journalist)
 
 In Canada: [Fight COVID Racism](//t.co/u116DoPExF) ([Tweet](//twitter.com/CdnHumanRights/status/1266426222663421956)) (non-US but parallel)
 
 Publicly: [Wikipedia's a long list of such attacks](//t.co/ZjhkbXa6OG) (Wikipedia requires citations for all content) and review [its history](//en.wikipedia.org/w/index.php?title=//en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_COVID-19_pandemic#New_YorkXenophobia_and_racism_related_to_the_COVID-19_pandemic&action=history) for vandals (i.e. [edits erasing us](//en.wikipedia.org/w/index.php?title=Xenophobia_and_racism_related_to_the_COVID-19_pandemic&diff=1020229957&oldid=1020207013&diffmode=source)); to [CNN's ongoing reporting in workplace incidents](//t.co/eJceiRU5KC) ([Tweet](//twitter.com/CNN/status/1377758224716328963))
 
 [#StopAsianHate](//twitter.com/hashtag/StopAsianHate); [#StopAAPIHate](//twitter.com/hashtag/StopAAPIHate); [#HateIsAVirus](//twitter.com/hashtag/HateIsAVirus) by [Hate Is a Virus](//t.co/UKdnKDabMx); [#WashTheHate](//t.co/k41J1aMvE2); [#StandWithAsianAmericans](//t.co/77fPOgFgUp) ([Facebook](//facebook.com/story.php?story_fbid=10106045722006433&id=205370), [Twitter](//twitter.com/davelu/status/1377276256513785859)); 
+
+Analysis: Too many duplicate terms: APA, AAPI, Asian, AAPA, AANH, AA and PI, API, etc.; AA is African American
+
 ## Help victims
 ### Patrol, Guard, Watch, Protect, Defend, Intervene
 
@@ -111,7 +117,7 @@ This is different than reporting crimes since it's longer, not necessarily about
 ## Media
 Represent not just in the entertainment industry (see [Nancy Wang Yuen](//t.co/43HC1QkOFX)) and journalism ([political journalists](//twitter.com/i/lists/1231328521475231745), [AAPI journalists](//twitter.com/i/lists/87671182)), but all public life outlets.
 
-Screens, Movies, Television: [tv lead list](//t.co/jqXwzgq9YN); ''Moxie'' (2021) features the all-AAPI rock band [The Linda Lindas](//y2u.be/1Eg3c9i1Am0) ([credit](//instagram.com/p/COORUKZAY8T); [intro](//y2u.be/wNTgy6cm_-Y); [#MoxieGirlsFightBack](//twitter.com/hashtag/moxiegirlsfightback); [its book](//t.co/Nbya7xacOr))
+Screens, Movies, Television: [tv lead list](//t.co/jqXwzgq9YN); ''Moxie'' (2021) features the all-AAPI rock band [The Linda Lindas](//y2u.be/1Eg3c9i1Am0) ([credit](//instagram.com/p/COORUKZAY8T); [intro](//y2u.be/wNTgy6cm_-Y); [#MoxieGirlsFightBack](//twitter.com/hashtag/moxiegirlsfightback); [its book](//t.co/Nbya7xacOr)); Pixar shorts "[Float](//y2u.be/1HAGuju_yKY)", "[Wind](//y2u.be/EpaLbYFVfbQ)"; 
 
 For casting opportunities, industry email groups are best. Barely any get reposted to [groups actively keeping up with the news](//medium.com/@richardc020/washthehate-43cb5d0de773?source=friends_link&sk=d488ff5071ef42d7c1b99034288d8421).
 
@@ -180,7 +186,7 @@ Analysis: Filipinos in the US military have a major, long affiliation then and n
 
 ## Support AAPI Businesses, Professionals, Philantropists, Donors
 
-Orgs: [TAAF](//t.co/VZUPbJBWsg) (immense visibility, power, and principled deployment at scale; [launch video](//y2u.be/E2t12HAUx3s)); [Protect Workplace Rights](//t.co/DaXiYYDt0v) by [APAPA](//t.co/nNEHur33mg); [Stand With Asian Americans](//t.co/77fPOgFgUp) (business leaders); [OpenMeal](//t.co/wCGE4skkYt); [Welcome to Chinatown](//t.co/iPCO9l9Izp) (Manhattan); [Send Chinatown Love](//t.co/e6BC5lDwGZ) (SF); [asiansofcreation](//instagram.com/asiansofcreation); [Nikki of Antonik's BBQ](//twitter.com/azidotmedia/status/1359997993940828163); [more](//news.yahoo.com/8-asian-owned-beauty-brands-110000728.html); [AAPIP](//t.co/Njx1KLuK2q); [PR leaders](//t.co/nHBA9FNEb7)
+Orgs: Protect Workplace Rights](//t.co/DaXiYYDt0v) by [APAPA](//t.co/nNEHur33mg); [Stand With Asian Americans](//t.co/77fPOgFgUp) (business leaders); [OpenMeal](//t.co/wCGE4skkYt); [Welcome to Chinatown](//t.co/iPCO9l9Izp) (Manhattan); [Send Chinatown Love](//t.co/e6BC5lDwGZ) (SF); [asiansofcreation](//instagram.com/asiansofcreation); [Nikki of Antonik's BBQ](//twitter.com/azidotmedia/status/1359997993940828163); [more](//news.yahoo.com/8-asian-owned-beauty-brands-110000728.html); [AAPIP](//t.co/Njx1KLuK2q); [PR leaders](//t.co/nHBA9FNEb7)
 
 Bad Orgs: [Leaders Forum](//t.co/Cnx3iXSGig) (opaque leadership, no transparency)
 
